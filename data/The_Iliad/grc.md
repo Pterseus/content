@@ -2,7 +2,7 @@
 title: Ἰλιάς
 author: Όμηρος
 language: grc
-date: 0750-01-01
+date: -000750-01-01
 ---
 
 # Ἰλιάς
