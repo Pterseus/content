@@ -58,7 +58,9 @@ The true law of life is so simple, clear and intelligible that men cannot seek t
 
 #### 3
 
-Some say that the fulfilment of the law of God is difficult. This is not true. The law of life asks nothing of us but to love our neighbor. And to love is not difficult, but pleasant. Scovoroda.
+Some say that the fulfilment of the law of God is difficult. This is not true. The law of life asks nothing of us but to love our neighbor. And to love is not difficult, but pleasant.
+
+_Scovoroda_
 
 #### 4
 
@@ -98,7 +100,9 @@ All faith is merely a reply to this question: how must I live in the world not b
 
 #### 3
 
-In the true faith it is not important to be able to talk interestingly about God, about the soul, about the past or the future, but one thing alone is essential: to know firmly what you ought to do and what you ought not to do in this life. Kant.
+In the true faith it is not important to be able to talk interestingly about God, about the soul, about the past or the future, but one thing alone is essential: to know firmly what you ought to do and what you ought not to do in this life.
+
+_Kant_
 
 #### 4
 
@@ -112,7 +116,7 @@ The life of man is good or evil only as he understands the true law of life. The
 
 In order to escape from that mire of sin, vice and misery wherein they live, people have need of one thing alone: they need a faith in which they would live, not as now — each for himself — but a common life, all acknowledging one law and one purpose. Only then might people repeating the words of the Lord's Prayer: "Thy Kingdom come, Thy will be done on earth, as it is in Heaven," hope that the Kingdom of God will indeed descend upon earth.
 
-Mazsini.
+_Mazsini_
 
 #### 7
 
@@ -648,7 +652,7 @@ _Brahminic wisdom_
 
 #### 1
 
-We have measured the earth, the sun, the stars and the depths of the sea, we have penetrated the bowels of the earth in search of gold, we have explored rivers, the mountains of the moon, we have discovered new stars and know their dimensions, we have filled up abysses, we have built cunning machinery: not a day passes, but we have new inventions. Is there a limit to our capabilities? But something, the most important thing is lacking. What that is we do not know ourselves. We are like babes: the infant feels that something1 is wrong, but what or why, he does not know.
+We have measured the earth, the sun, the stars and the depths of the sea, we have penetrated the bowels of the earth in search of gold, we have explored rivers, the mountains of the moon, we have discovered new stars and know their dimensions, we have filled up abysses, we have built cunning machinery: not a day passes, but we have new inventions. Is there a limit to our capabilities? But something, the most important thing is lacking. What that is we do not know ourselves. We are like babes: the infant feels that something is wrong, but what or why, he does not know.
 
 Something is wrong because we know much that is superfluous, but do not know the most needful thing: our own self. We do not know what dwells within us. If we knew and remembered what dwells within us, our lives would be altogether different.
 
@@ -752,7 +756,9 @@ Kant, the philosopher, remarked that two things excited his wonder above all oth
 
 #### 6
 
-The genuine good is in your own self, in your soul. He who seeks good without himself is like the shepherd seeking among his herd that lamb which he has sheltered in his own bosom. Hindu wisdom.
+The genuine good is in your own self, in your soul. He who seeks good without himself is like the shepherd seeking among his herd that lamb which he has sheltered in his own bosom.
+
+_Hindu wisdom_
 
 ### VI. The Divinity of the Soul
 
@@ -908,7 +914,7 @@ They understood not that he spake to them of the Father.
 
 Then said Jesus unto them, When ye have lifted up the Son of man, then shall ye know that I am he, and that I do nothing of myself; but as my Father hath taught me, I speak these things.
 
-_John, VIII,_ 26-28.
+_John_, _VIII_, 26-28.
 
 To lift up the Son of man is to recognize in our self the spirit that dwells in us and to lift it up above the body.
 
@@ -1256,7 +1262,7 @@ Only perfection can be loved. Therefore, in order to love one of two things is r
 
 God is love; he who dwelleth in love dwelleth in God, and God dwelleth in him. No man has ever seen God, but if we love one another God dwelleth in us and His love is perfected in us. If a man say, I love God, and hateth his brother, he is a liar; for he that loveth not his brother, whom he hath seen, how can he love God, whom he hath not seen? Beloved, let us love one another, for love is of God, and every one that loveth is born of God, and knoweth God, for God is love.
 
-Based upon _1 John, IV_.
+Based upon _1 John IV_.
 
 #### 5
 
@@ -1314,9 +1320,7 @@ Others say: come out of self; strive to forget self and seek happiness in pleasu
 
 Love God, and you will find in God that which you seek.
 
-### II. Just as the Human Body Craves Food and Suffers When
-
-Deprived of It, so Does the Soul of Man Crave Love and Suffers When Deprived of It
+### II. Just as the Human Body Craves Food and Suffers When Deprived of It, so Does the Soul of Man Crave Love and Suffers When Deprived of It
 
 #### 1
 
@@ -1548,7 +1552,9 @@ We have corrupted our minds and no longer strive to learn that which is needful 
 
 If amid the vanities of life we stopped for a season to look within our own self, we should discover wherein is our true happiness.
 
-Our body is weak, unclean, mortal, but a treasure is concealed in it, the immortal spirit of God. If we but recognize this spirit within us, we shall love our fellow man, and if we love our fellow man, we shall attain all that our heart desires: we shall be happy. Scovoroda.
+Our body is weak, unclean, mortal, but a treasure is concealed in it, the immortal spirit of God. If we but recognize this spirit within us, we shall love our fellow man, and if we love our fellow man, we shall attain all that our heart desires: we shall be happy.
+
+_Scovoroda_
 
 #### 7
 
@@ -1600,7 +1606,7 @@ People frequently think that if they love their fellow men they have acquired me
 
 "We know that we have passed from death unto life, because we love the brethren. He that loveth not his brother, abideth in death."
 
-_1 John, III,_ 14.
+_1 John III,_ 14.
 
 #### 18
 
@@ -1640,7 +1646,7 @@ You wish to give your body as much pleasure as you can. But will your body live 
 
 Move your house to firm soil, work on that which dieth not; improve your soul, free yourself from sins, errors and superstitions.
 
-_Dr. Scovoroda_
+_Scovoroda_
 
 #### 4
 
@@ -1690,7 +1696,7 @@ Jesus said unto him, Thou shalt love the Lord thy God with all thy heart, and wi
 
 This is the first and great commandment.
 
-And the second is like unto it, "Thou shalt love thy neighbor as thyself." Matthew XXII, 35-39.
+And the second is like unto it, "Thou shalt love thy neighbor as thyself." _Matthew XXII_, 35-39.
 
 Therefore in accordance with the Christian doctrine sin is all that is out of harmony with these two commandments.
 
@@ -1950,7 +1956,7 @@ In these days the majority of the people think that the happiness of life consis
 
 #### 13
 
-Consider how the slave longs to live. First of all he yearns to be set at liberty. He thinks that he cannot be free or happy in any other way. He says to himself: If I be given my liberty, I shall immediately attain happiness; I shall not be compelled to serve and humor my master, 1 could speak to any man as an equal, I could go where I pleased without asking any man's leave.
+Consider how the slave longs to live. First of all he yearns to be set at liberty. He thinks that he cannot be free or happy in any other way. He says to himself: If I be given my liberty, I shall immediately attain happiness; I shall not be compelled to serve and humor my master, I could speak to any man as an equal, I could go where I pleased without asking any man's leave.
 
 But no sooner is he given his freedom, he immediately seeks to curry favor with somebody, in order to secure better food. He is ready to stoop to any indignity for this purpose. And establishing himself near some prosperous man, he relapses into the slavery from which he had so recently desired to escape.
 
@@ -2226,7 +2232,7 @@ But he that is married careth for the things that are of the world, how he may p
 
 There is a difference also between a wife and a virgin. The unmarried woman careth for the things of the Lord, that she may be holy both in body and in spirit; but she that is married careth for the things of the world, how she may please her husband.
 
-_1 Cor., VII,_ 32-34.
+_1 Cor. VII,_ 32-34.
 
 #### 6
 
@@ -2418,9 +2424,7 @@ Thirdly, marriage must not be looked upon as now in the light of a license to sa
 
 The licensing of two persons of opposite sexes to live together sexually in marriage is not only out of accord with the Christian teaching, but is directly contrary to it.
 
-Chastity according to the Christian doctrine is that perfection towards which a person leading the life of a
-
-Christian should properly strive. Therefore all that hinders the approach to chastity, such as licensing of sexual relations in marriage, is opposed to the demands of the Christian doctrine.
+Chastity according to the Christian doctrine is that perfection towards which a person leading the life of a Christian should properly strive. Therefore all that hinders the approach to chastity, such as licensing of sexual relations in marriage, is opposed to the demands of the Christian doctrine.
 
 #### 13
 
@@ -2570,7 +2574,9 @@ Man lives the life of the body and of the spirit. And there is a law of the life
 
 #### 6
 
-No matter how gorgeous may be the attire presented to you by a king, your homespun garments are better; no matter how delicate may be the viands of the rich, the bread of -your own table is sweeter. Saadi.
+No matter how gorgeous may be the attire presented to you by a king, your homespun garments are better; no matter how delicate may be the viands of the rich, the bread of -your own table is sweeter.
+
+_Saadi_
 
 #### 7
 
@@ -2930,7 +2936,7 @@ _Lavelais_
 
 Men complain of poverty and use every means to attain wealth, yet poverty and need give man firmness arid strength, while on the contrary excesses and luxury lead to weakness and ruin.
 
-It is foolish for poor men to seek to change their con1 dition which is beneficial both to body and soul for riches which are harmful to both.
+It is foolish for poor men to seek to change their condition which is beneficial both to body and soul for riches which are harmful to both.
 
 #### 2
 
@@ -3142,7 +3148,7 @@ The meanest thief is not he who takes what he needs, but he who clings to that w
 
 My little children, let us not love in word, neither in tongue, but in deed and in truth."
 
-1 _John, iii,_ 17-18.
+_1 John III,_ 17-18.
 
 And if the rich man would love not in word, neither in tongue, but in deed and in truth, let him give to him who asks, — said Christ. And if he gave to those who ask, no matter how much wealth a man might have, he would soon cease to be rich. And as soon as he ceases to be rich, he will be in the position of the rich young man to whom Christ spoke, there will then be nothing to hinder him from following Christ.
 
@@ -3268,7 +3274,9 @@ Do not despise, do not beyond measure honor any man. If you despise a man, you f
 
 #### 1
 
-It is said that a good man can not help being angry with evil men, but if this were so then the better a man is in comparison with others, the angrier he would be. But the contrary is true; the better a man is, the gentler and kindlier he is to all people. This is because a good man remembers that he himself has done sinful things, and if he should be angry with others for being bad, he would have to be first of all angry with himself. Seneca.
+It is said that a good man can not help being angry with evil men, but if this were so then the better a man is in comparison with others, the angrier he would be. But the contrary is true; the better a man is, the gentler and kindlier he is to all people. This is because a good man remembers that he himself has done sinful things, and if he should be angry with others for being bad, he would have to be first of all angry with himself.
+
+_Seneca_
 
 #### 2
 
@@ -3458,7 +3466,7 @@ In the Hindu law it is said: as surely as it is cold in the winter time and warm
 
 #### 8
 
-If I know that anger robs me of true happiness, 1 can no longer consciously engage in enmities with others as I was wont to do, or glory in my anger, boast of it, puff it up, and find excuses for it, count myself important and others insignificant, lost or mad; I cannot at the first intimation of rising anger do otherwise but feel that I alone am to blame or refrain from seeking peace with those who are estranged from me.
+If I know that anger robs me of true happiness, I can no longer consciously engage in enmities with others as I was wont to do, or glory in my anger, boast of it, puff it up, and find excuses for it, count myself important and others insignificant, lost or mad; I cannot at the first intimation of rising anger do otherwise but feel that I alone am to blame or refrain from seeking peace with those who are estranged from me.
 
 But this is not sufficient. If I know now that anger is evil for my soul, I also know that which misleads me into this evil. And that is my forgetting that the same spirit dwells in others as it does in me. I see now that this separateness from people, this recognition of self as being above others is one of the principal causes of human -enmity. Re membering my past life I see that I never permitted my anger to rise against those who I considered to be above myself, and that I never offended such people. But the slightest act of a man whom I believed to be beneath me, if it displeased me, aroused my anger and evoked an insult on my part, and the higher I felt myself above him, the more lightly I insulted him; sometimes the mere thought of a man's inferior position led me to insult him.
 
@@ -3936,7 +3944,7 @@ _Mahmud Hasha_
 
 One of the main causes of human misery is the erroneous idea that some men may by force order or improve the life of others.
 
-### Coercing Others
+### I. Coercing Others
 
 #### 1
 
@@ -4154,7 +4162,7 @@ Nothing so hinders the improvement in the life of people as the desire to improv
 
 #### 4
 
-Only those men who find it profitable to order the life of others can believe that force can improve the life of others. But people who have fallen into this delusion ought to see clearly that human life can change for the better only as the result of an inner spiritual change, and never as the result of force employed1 upon them by others.
+Only those men who find it profitable to order the life of others can believe that force can improve the life of others. But people who have fallen into this delusion ought to see clearly that human life can change for the better only as the result of an inner spiritual change, and never as the result of force employed upon them by others.
 
 #### 5
 
@@ -4346,7 +4354,7 @@ Only men altogether intoxicated with the lust of power can seriously believe tha
 
 'She said, No man, Lord. And Jesus said unto her: Neither do I condemn thee; go, and sin no more."
 
-_John, VIII,_ 3-16.
+_John_, _VIII_, 3-16.
 
 #### 4
 
@@ -4496,7 +4504,7 @@ Then came Peter to Him, and said, Lord, how oft shall my brother sin against me,
 
 Jesus saith unto him, I say not unto thee, until seven times, but until seventy times seven.
 
-_Matthew, XVIII,_ 21, 22.
+_Matthew_, _XVIII_, 21, 22.
 
 To forgive, means not to do vengeance, not to render evil for evil, it means to love. If man believe this, then the thing is not what the brother has done, but what you ought to do. If you would correct your neighbor in his error, tell him meekly that he has done wrong. If he fail to hear you, do not blame him, but blame yourself for not knowing how to tell him suitably.
 
@@ -4622,7 +4630,9 @@ Man can free himself from this temptation only by stubborn struggle with self an
 
 We are not content to live our true inner life, we crave to live another, a fictitious life in the thoughts of other people, and for that purpose we force ourselves to appear other than we really are. We unceasingly strive to adorn tfeis fictitious person, but take no care of the real creature which we actually are. If we are at peace in our soul, if we believe, if we love, we hurry to tell others about .it so that these virtues should be not ours alone, but should be also attributed to the fictitious person in the minds of others.
 
-In order to make people think that we have virtues, we are even ready to give them up. We are ready to be cowards, if only we gain reputation for bravery. Pascal.
+In order to make people think that we have virtues, we are even ready to give them up. We are ready to be cowards, if only we gain reputation for bravery.
+
+_Pascal_
 
 #### 4
 
@@ -4804,7 +4814,7 @@ And the hermit was terrified, and said:
 
 "Madman," replied the angel of God, "all these small Ethiopians whom you will not fight because of the fear of the huge Ethiopian back of them, they are the sinful desires of man, and they can be overcome. But the Ethiopian giant is human glory, for the sake of which men live in sin. It is needless to fight him. He is hollow and empty. Overcome sin, and he will vanish from the earth of his own accord."
 
-V. Take Heed of Your Soul, and Not of Your Reputation
+### V. Take Heed of Your Soul, and Not of Your Reputation
 
 #### 1
 
@@ -4878,7 +4888,7 @@ The advantage of serving God as compared with serving people is that before peop
 
 #### 3
 
-If you would have peace, try to please God. Different people crave different things: to-day they desire one thing, to-morrow another. You can never please the people. But God living within you always desires one thing, and you know what He desires.
+If you would have peace, try to please God. Different people crave different things: to-day they desire one thing, tomorrow another. You can never please the people. But God living within you always desires one thing, and you know what He desires.
 
 #### 4
 
@@ -4922,7 +4932,9 @@ It is bad enough to lie to other people, but it is far worse to lie to oneself. 
 
 #### 4
 
-"Believe or be damned." Herein is the main source of evil. If a man accepts without reasoning that which he should settle by the light of his reason, he loses in the end the capacity of reasoning, and not only falls into condemnation himself, but leads his neighbors into sin as well. The salvation of people consists in everyone learning to think with his own mind. Emerson
+"Believe or be damned." Herein is the main source of evil. If a man accepts without reasoning that which he should settle by the light of his reason, he loses in the end the capacity of reasoning, and not only falls into condemnation himself, but leads his neighbors into sin as well. The salvation of people consists in everyone learning to think with his own mind.
+
+_Emerson_
 
 #### 5
 
@@ -4954,7 +4966,7 @@ _Kant_
 
 The penance of a man who chastises himself instead of taking advantage of the disposition of his spirit in order to change his mode of life is wasted labor; such penance has in addition the bad effect of making him think that by this act of penance he has wiped out his score of debts and he takes no further care to perfect himself, which is the only thing conscious when conscious of moral faults.
 
-Kant.
+_Kant_
 
 #### 4
 
@@ -4986,7 +4998,9 @@ Such prayer is help, strength, elevation of spirit, confession, examination of p
 
 #### 1
 
-Between a Shaman and a European prelate, or taking plain people for example, between a crude sensual heathen who in the morning places upon his head the paw of a bearskin and says: "Slay me not," and a cultured Connecticut Puritan, there may be a difference in methods, but there is no difference in the fundamentals of their faiths, for both belong to that class of people whose idea of serving God is not in becoming better men, but in religion or in the observing of certain arbitrary rules. Only those who believe that serving God is to strive towards a better life are different from these others, inasmuch as they acknowledge a different, a vastly superior basis for their faith that unites all right-minded people into one invisible church, which alone can be the universal church. Kant.
+Between a Shaman and a European prelate, or taking plain people for example, between a crude sensual heathen who in the morning places upon his head the paw of a bearskin and says: "Slay me not," and a cultured Connecticut Puritan, there may be a difference in methods, but there is no difference in the fundamentals of their faiths, for both belong to that class of people whose idea of serving God is not in becoming better men, but in religion or in the observing of certain arbitrary rules. Only those who believe that serving God is to strive towards a better life are different from these others, inasmuch as they acknowledge a different, a vastly superior basis for their faith that unites all right-minded people into one invisible church, which alone can be the universal church.
+
+_Kant_
 
 #### 2
 
@@ -5022,7 +5036,9 @@ The man who has given the subject of religion no thought imagines that the only 
 
 #### 1
 
-In 1682 it happened in England that Dr. Leighton, a venerable man who had written a book against the Anglican episcopate, was tried in court and sentenced to the following punishment: he was cruelly lashed, then one of his ears was cut off, one of his nostrils slit open, and the characters S S were branded on his cheek. Seven days later he was lashed again, although the scars on his back had not yet healed, his other nostril was slit open, his other ear cut off, and his other cheek was branded. All this was done in the name of Christianity. Davidson.
+In 1682 it happened in England that Dr. Leighton, a venerable man who had written a book against the Anglican episcopate, was tried in court and sentenced to the following punishment: he was cruelly lashed, then one of his ears was cut off, one of his nostrils slit open, and the characters were branded on his cheek. Seven days later he was lashed again, although the scars on his back had not yet healed, his other nostril was slit open, his other ear cut off, and his other cheek was branded. All this was done in the name of Christianity.
+
+_Davidson_
 
 #### 2
 
@@ -5030,7 +5046,7 @@ In 1415, Johannes Huss was adjudged a heretic for attacking the Catholic religio
 
 He was executed outside the city gates between some gardens. When he was brought to the place of execution he knelt down and commenced to pray. When the executioner commanded him to ascend the stake, Huss arose and loudly said:
 
-"Lord Jesus Christ, I go to my death for the preaching of thy word, I shall suffer obediently/'
+"Lord Jesus Christ, I go to my death for the preaching of thy word, I shall suffer obediently"
 
 The executioners divested him of his clothing and bound his hands behind him to a post. The feet of the martyr rested upon a bench. Fagots and straw were piled about him. They reached up to his chin. Then the Emperor's representative approached him and said that if he recanted all that he had taught, he would be pardoned.
 
@@ -5126,7 +5142,9 @@ The corruption of Christianity has removed us from the realization of the Kingdo
 
 Listen to that profound dissatisfaction with the present form of Christianity which has seized our society and is expressed in murmurs of bitter resentment and sorrow. All are thirsting for the coming of the Kingdom of God. And it is drawing nigh.
 
-A purer Christianity slowly but surely replaces that which has been passing under that name. Channing.
+A purer Christianity slowly but surely replaces that which has been passing under that name.
+
+_Channing_
 
 #### 3
 
@@ -5250,7 +5268,9 @@ All that we call science is merely an invention of rich men to occupy their idle
 
 #### 6
 
-We live in an age of philosophy, science and reason. It seems as though all sciences had combined to illumine our path in the maze of human life. Immense libraries are open to all: colleges, schools, universities give us an opportunity to make use of the wisdom of men accumulated in the course of thousands of years. It seems as though everything worked together to develop our mind and to strengthen our reason. Have we become better or wiser from it all? Do we know better what our duties are, and what is most important, wherein lies the blessedness of life? What have we acquired from all this futile knowledge, besides enmity, hatred, uncertainty and doubts? Every religious teaching and sect proves that it alone has found the truth. Every writer demonstrates that he alone knows wherein consists our happiness. One proves to us that there is no body. Another that there is no soul. A third one that there is no connection between body and soul. Again another that man is an animal. And still another that God is merely a mirror. Rousseau.
+We live in an age of philosophy, science and reason. It seems as though all sciences had combined to illumine our path in the maze of human life. Immense libraries are open to all: colleges, schools, universities give us an opportunity to make use of the wisdom of men accumulated in the course of thousands of years. It seems as though everything worked together to develop our mind and to strengthen our reason. Have we become better or wiser from it all? Do we know better what our duties are, and what is most important, wherein lies the blessedness of life? What have we acquired from all this futile knowledge, besides enmity, hatred, uncertainty and doubts? Every religious teaching and sect proves that it alone has found the truth. Every writer demonstrates that he alone knows wherein consists our happiness. One proves to us that there is no body. Another that there is no soul. A third one that there is no connection between body and soul. Again another that man is an animal. And still another that God is merely a mirror.
+
+_Rousseau_
 
 #### 7
 
@@ -5354,7 +5374,9 @@ One of the commonest phenomena of our times is to see men who consider themselve
 
 #### 7
 
-People cannot know or understand everything that is going on in the world, wherefore their judgment on many things is incorrect. There are two kinds of lack of knowledge: one is the true, natural lack of knowledge, the state in which man is born. The other may be termed the nescience of the truly wise. When a man exhausts all the sciences and learns all that men know or have ever known, he must see that all this knowledge massed together is so trifling that it cannot enable him to comprehend the world of God, and he will come to the conclusion that learned people basically know as little as the ordinary unlettered people. But there are superficial men who have learned a little here and a little there, who have familiarized themselves with surface knowledge of various sciences and have become 'conceited. They departed from the natural ignorance, but have not yet attained the true wisdom of those learned men who have grasped the imperfection and the futility of all human knowledge. These are the people, wise in their own estimation, who bring confusion into the world. They judge all things confidently and rashly, and naturally enough they err constantly. They know how to throw dust in the eyes of the people, and are frequently honored, but the common people despise them, being aware of their worthlessness. And they in turn despise the common people, considering them ignorant. Pascal.
+People cannot know or understand everything that is going on in the world, wherefore their judgment on many things is incorrect. There are two kinds of lack of knowledge: one is the true, natural lack of knowledge, the state in which man is born. The other may be termed the nescience of the truly wise. When a man exhausts all the sciences and learns all that men know or have ever known, he must see that all this knowledge massed together is so trifling that it cannot enable him to comprehend the world of God, and he will come to the conclusion that learned people basically know as little as the ordinary unlettered people. But there are superficial men who have learned a little here and a little there, who have familiarized themselves with surface knowledge of various sciences and have become 'conceited. They departed from the natural ignorance, but have not yet attained the true wisdom of those learned men who have grasped the imperfection and the futility of all human knowledge. These are the people, wise in their own estimation, who bring confusion into the world. They judge all things confidently and rashly, and naturally enough they err constantly. They know how to throw dust in the eyes of the people, and are frequently honored, but the common people despise them, being aware of their worthlessness. And they in turn despise the common people, considering them ignorant.
+
+_Pascal_
 
 #### 8
 
@@ -5412,7 +5434,9 @@ A learned man is a man who knows very many things out of all sorts of books. An 
 
 If in real life illusion mars reality but for a moment— in the domain of the abstract illusion can rule for thousands of years and impose its iron yoke upon entire nations, choking the noblest -impulses of mankind, and with the help of the slaves deceived by it, shackle those whom it cannot deceive. It is the enemy with whom the wisest minds of all ages engaged in unequal combat, and what they won from it in conquest is the noblest heritage of mankind.
 
-If it is said that we must seek truth even where no profit can be foreseen from it, because gain may be found where it is least expected, we may also add that we must as zealously seek out and eradicate every delusion where no harm from it can be foreseen, for harm may appear and be manifested where least expected, as every delusion contains a poison. There are no harmless delusions, and certainly no venerable or sacred delusions. It may be boldly stated, in consolation of those who devote their lives to the noble and arduous war against delusions of any kind, that error may do its work at night like owls and bats until the light of truth appears, but there is more likelihood of the owls and bats frightening the sun and driving it back whence it came than of old delusions forcing out a realized truth, fully and clearly expressed — and of taking unhindered the place vacated by it. Such is the power of truth: it gains victory with difficulty and with trouble, but once the victory is gained it cannot be turned back. Schopenhauer.
+If it is said that we must seek truth even where no profit can be foreseen from it, because gain may be found where it is least expected, we may also add that we must as zealously seek out and eradicate every delusion where no harm from it can be foreseen, for harm may appear and be manifested where least expected, as every delusion contains a poison. There are no harmless delusions, and certainly no venerable or sacred delusions. It may be boldly stated, in consolation of those who devote their lives to the noble and arduous war against delusions of any kind, that error may do its work at night like owls and bats until the light of truth appears, but there is more likelihood of the owls and bats frightening the sun and driving it back whence it came than of old delusions forcing out a realized truth, fully and clearly expressed — and of taking unhindered the place vacated by it. Such is the power of truth: it gains victory with difficulty and with trouble, but once the victory is gained it cannot be turned back.
+
+_Schopenhauer_
 
 #### 7
 
@@ -5458,7 +5482,9 @@ Bad books are not only useless, but harmful. Nine tenths of all books are printe
 
 It is therefore better not even to read the books of which much is said or written. People ought first of all to become acquainted with and read the best authors of all ages and nations. These books must be read first of all. Otherwise you will hardly have a chance to read them all. Only such authors can instruct and educate us.
 
-We can never read too few bad books nor too many good books. Bad books are a moral poison stupefying the people. Schopenhauer.
+We can never read too few bad books nor too many good books. Bad books are a moral poison stupefying the people.
+
+_Schopenhauer_
 
 #### 5
 
@@ -5478,7 +5504,9 @@ Every man may and should make use of everything that the aggregate reason of man
 
 Knowledge is only then knowledge when it has been acquired by an effort of a man's own thinking rather than by memory alone.
 
-Only when we have forgotten everything that has been taught us do we begin to know truly. I shall not come a hair's breadth closer to the knowledge of things as long as I look upon them as I have been taught to do. In order to know an object I must approach it as something entirely unknown to me. Thoreau.
+Only when we have forgotten everything that has been taught us do we begin to know truly. I shall not come a hair's breadth closer to the knowledge of things as long as I look upon them as I have been taught to do. In order to know an object I must approach it as something entirely unknown to me.
+
+_Thoreau_
 
 #### 3
 
@@ -5486,7 +5514,9 @@ We expect from a teacher that he first make his pupil a reasoning person, then a
 
 This method has the advantage that though the pupil may never attain the final stage, which is usually the case, he still may profit from instruction and will become more experienced and wiser — if not for the purposes of the school, then at least for those of life.
 
-But if this method is inverted, then the pupils are apt to catch something of cleverness before their reasoning faculties have been developed and to take away from school a borrowed knowledge, like something that is glued to them but has not been assimilated by them, and their spiritual faculties remain sterile as before, but at the same time much vitiated by a spurious learnedness. Therein is the cause why we frequently meet men of learning (or rather of instruction) who show so little reason, and why so many more blockheads come into the world out of colleges than from any other social class. Kant.
+But if this method is inverted, then the pupils are apt to catch something of cleverness before their reasoning faculties have been developed and to take away from school a borrowed knowledge, like something that is glued to them but has not been assimilated by them, and their spiritual faculties remain sterile as before, but at the same time much vitiated by a spurious learnedness. Therein is the cause why we frequently meet men of learning (or rather of instruction) who show so little reason, and why so many more blockheads come into the world out of colleges than from any other social class.
+
+_Kant_
 
 #### 4
 
@@ -5513,3 +5543,4319 @@ Is reading and learning one and the same? Some one asserted, not without reason,
 If people were only taught how to think, and not merely that they should think, this misunderstanding would be removed.
 
 _Lichtenberg_
+
+## Effort
+
+Sins, errors and superstitions obstruct a man's soul and hide it from himself. In order to reveal his soul to him self, man must make an effort of consciousness, and there fore in such efforts of consciousness is the principal task of a man's life.
+
+### I. Deliverance From Sins, Errors and Superstition is in Effort
+
+#### 1
+
+Self-renunciation delivers men from sins, humility from errors, truthfulness from superstitions. But in order to renounce the passions of the body, to humble himself before the errors of pride, and in order to examine in the light of reason the superstitions which enmesh him, man must make efforts. Only by efforts of his consciousness can man be delivered from sins, errors and superstitions which deprive him of happiness.
+
+#### 2
+
+The Kingdom of God is taken fey effort. The Kingdom of God is within you (Luke, XVI, 16; XVII, 21). These two sayings of the Gospel signify that only by effort of the consciousness within himself can man overcome the sins, errors and superstitions which would retard the com ing of the Kingdom of God.
+
+#### 3
+
+Here on earth there can be, there must be, no rest, because life is progress towards a goal that cannot be reached. Rest is immoral. I cannot say what this goal is. But whatever it be, we are moving toward it. Without this progress life would be folly and delusion. And we move toward this goal only by our own efforts.
+
+_Mazzini_
+
+#### 4
+
+To become ever better herein is the whole concern of life, and one can become better only by effort.
+
+We all know that we cannot achieve anything in the material world without effort. We must realize that like wise in the life of the soul — which is the paramount con cern of life — nothing can be achieved without effort.
+
+#### 5
+
+True strength is not in being able to tie a steel rod into a knot, nor in possessing boundless wealth, nor yet in ruling over millions of people — true strength is in having mastery over self.
+
+#### 6
+
+Never think of a good deed: "it is not worth the trouble, it is so difficult that I shall be unable to accomplish it," nor "it is so easy, I can do it any time at my pleasure." Neither think nor speak in this manner: every effort, though its purpose be unattainable, though its purpose be ever so unimportant, every effort, we repeat, strengthens the soul.
+
+#### 7
+
+Some think that in order to be a Christian we must perform peculiar and extraordinary deeds. This is not so. No such peculiar and extraordinary deeds are required of a Christian, but a constant effort of consciousness to rid the soul of sins, errors and superstitions.
+
+#### 8
+
+Our evil deeds, the sources of our misfortunes, are easy to perform. But what is good and beneficial to us re quires an effort.
+
+_Buddhist wisdom_
+
+#### 9
+
+If a man makes it his rule to do only what he pleases, he will not be pleased for long with what he is do ing. Real tasks are those which require an effort to be accomplished.
+
+#### 10
+
+The path to good knowledge never leads over velvety lawns strewn with blossoms: man must always make his way towards it over bare rocks. Rusk in.
+
+#### 11
+
+The search for truth is not entered upon in a merry mood, but always with agitation and emotion; and still this search must go on, for if you do not find truth and learn to love it, you must perish. But, you might say, if truth cared to be found and loved by me, it would manifest itself to me. Truth does manifest itself to you, but you fail to see it. Seek it, truth wills it so.
+
+_Pascal_
+
+### II. It Requires Effort to Live for the Soul
+
+#### 1
+
+I am an instrument with which God performs His work. My true happiness is to share in this work. I can share in this work only by those efforts of my conscious ness which I make so as to keep in good order, clean, sharp and accurate the divine tool that has been intrusted to me — myself, my soul.
+
+#### 2
+
+The most precious thing for man is to be free, to live according to his own will and not according to that of another. In order to be so free, man must live for his soul. In order to live for his soul man must subdue the passions of his body.
+
+#### 3
+
+The life of man is a gradual passing from the lower animal nature to an ever increasing consciousness of spiritual life.
+
+#### 4
+
+We make an effort to awake and we wake up indeed when a dream becomes so horrible that we have no more strength to bear it. Even so with life when it becomes un bearable. At such times we must make mental efforts to awaken to a new, a superior spiritual life.
+
+#### 5
+
+We must make efforts to overcome sins, errors and superstition; otherwise, as soon as we cease to battle against them, our body will attain mastery over us.
+
+#### 6
+
+We imagine that real work must have something to do with things visible: building houses, plowing fields, feeding the cattle, and that work on our soul, being some thing invisible, is of no importance, is something that we can do or let alone; whereas every other kind of work is trifling, save the work on your own soul, the work of daily growth in spirit and in love. This is the only true work, and all other work is useful only as long as this chief work of life is performed.
+
+#### 7
+
+He who realizes that his life is bad and longs to lead a better life must not think that he cannot begin to live better until he has changed the circumstances of his life. Life can be and must be corrected not through external changes, but through a change within, a change in the soul. This can be done anywhere and at any time. And this is enough of a task for any man. Only when such a change enters your soul that you are unable to continue your former life, -only then alter your mode of life, but not when you think that you could reform yourself more easily by changing your mode of life.
+
+#### 8
+
+There is only one important life task for all peo ple. This consists in improving your soul. This is the one task to which all men are called. Everything else is trifling in comparison. The truth of this is evidenced by the fact that it is the one task in which you can engage without hindrance, and that it is the one task which always yields joy to man.
+
+#### 9
+
+Take a silk worm for a pattern. He toils until he has strength to fly. You are clinging to earth. Toil over your soul and you will receive wings. Angelus.
+
+### III. The Striving .After Perfection Requires Mental Effort
+
+#### 1
+
+"Be ye perfect, even as your Heavenly Father is perfect," says the Gospel. This does not signify that Christ commands man to be as perfect as God, but that every man must make efforts of mind to strive after perfection, and in this striving is the life of man.
+
+#### 2
+
+Every creature grows up gradually and not all at once. A science can not be mastered all at once. Neither can sin be overcome all at once. There is only one way to grow better: by wise judgment and constant patient effort.
+
+_Channing_
+
+#### 3
+
+Lessing said that it is not the truth which gives joy, but the effort which a man must make in order to attain it. The same may be said of virtue: the joy of virtue is in the efforts made to attain it.
+
+#### 4
+
+The following admonition is engraved on the bath tub of Emperor Ching-Chang: "Daily renew thyself com pletely; do so again and again from the beginning."
+
+_Chinese wisdom_
+
+#### 5
+
+If a man is not engaged in research, or if he is engaged in research and fails therein, let him not despair or cease; if a man does not question enlightened persons regarding doubtful matters, or questioning them fails to at tain enlightenment himself, let him not despair; if a man does not meditate, or meditating fails to comprehend clearly the essence of good, let him not despair; if a man does not distinguish good from evil, or in distinguishing lacks a clear conception, let him not despair; if a man does not perform good deeds, or in performing them does not devote his whole strength to them, let him not despair; whatever others have accomplished with one bound, he may be able to accomplish after ten trials; whatever others have ac complished after a hundred trials, he may be able to ac complish after a thousand.
+
+He who truly shall follow this rule of constant effort, no matter how ignorant he be, will attain enlightenment; no matter how weak he be, he will attain strength; no mat ter how depraved he be, he will surely acquire virtue.
+
+_Chinese wisdom_
+
+#### 6
+
+If a man performs good deeds merely because he has acquired the habit of doing good, his is not yet the truly good life. Good life commences when man makes efforts in order to be good.
+
+#### 7
+
+You say that it is not worth while to make efforts, for, strive as you may, you can never attain perfection. But your business is not in attaining perfection, it is in the constant striving after it.
+
+#### 8
+
+Let not man think lightly of evil in his heart: "I am so far from evil that it can not touch me." Little drops fill a vessel with water. Little by little the madman who does evil deeds is filled with evil.
+
+Let not man think lightly of goodness, saying in his heart: "I have no strength to receive goodness." As the vessel is filled drop by drop, even so the heart of the man who performs good deeds is filled with goodness as he strives towards blessedness.
+
+_Buddhist wisdom_
+
+#### 9
+
+To make life continuous joy instead of sorrow be always good to all, men and animals alike. In order to be always good, you must train yourself to be good. In order to train yourself to be good, you must not commit a single unkind action without reproving yourself.
+
+If you do this, you will soon acquire the habit of be ing kind to all, men and animals alike. And if you become accustomed to kindness, joy will ever reign in your heart.
+
+#### 10
+
+The virtue of man is not measured by prodigious feats, but by his daily effort.
+
+_Pascal_
+
+### IV. In Striving After Perfection Man Must Rely on His Own Strength Alone
+
+#### 1
+
+What a mistake to ask God or even people to rescue us out of an undesirable condition. Man requires no one's help, nor need he be rescued out of any condition, he has need of one thing only: to make an effort of his own mind in order to free himself from sins, errors and superstitions. Only to the extent that a man delivers himself from sins, errors and superstitions, can his condition change or im prove.
+
+#### 2
+
+Nothing so weakens the strength of a man as the hope of finding salvation and happiness in anything outside of his own efforts.
+
+#### 3
+
+We must rid ourselves of the idea that Heaven can correct our errors. If you prepare food carelessly you do not expect that Providence will intervene to make it tasty; even so if after a series of senseless actions you have mis directed the course of life, you must not think that divine intervention will set everything right.
+
+_Ruskin_
+
+#### 4
+
+There is within you the knowledge of what con stitutes supreme perfection. There are likewise within your own self obstacles to its attainment. Your condition is what you must work over in order to approach perfec tion.
+
+_Carlyle_
+
+#### 5
+
+You sin yourself, you encompass evil yourself, you flee from sin yourself, you purify your thoughts yourself, you are evil or you are pure in your own self — another can not save you.
+
+_Jampada_
+
+#### 6
+
+To say that I cannot refrain from an evil deed is to say that I am not a man but an animal. Men often think so, but no matter how strongly they may affirm this, they know within their own hearts that as long as they have life they can cease from evil and commence to do good.
+
+#### 7
+
+There is no moral law if I cannot obey it. Some say we are born selfish, covetous, lustful and we cannot be otherwise. Yes we can. First we must feel in our hearts what we are and what we should be, and then we must make an effort to strive towards that which we ought to be.
+
+_Voltaire_
+
+#### 8
+
+Man must develop his good inclinations. Provi dence did not implant them in man fully developed; they are embryonic. To make himself better, to improve him self by labor, therein is the principal task of a man's life.
+
+_Kant_
+
+### V. There is Only One Way to Improve the Life of Human Society — by the Individual Efforts of Men Striving After a Righteous and Moral Life
+
+#### 1
+
+Men draw nearer to the Kingdom of God, that is to a righteous and blessed existence, only through the efforts of each individual striving to live a righteous life.
+
+#### 2
+
+If you see that the social order is evil and you would improve it, know that there is only one way to ac complish it, and that is for all people to become better. And in order that all people may become better, there is only one means in your power: to become better yourself.
+
+#### 3
+
+We frequently hear men argue that all efforts to improve life, to eradicate evil, to enthrone righteousness are fruitless, that all these things come about of their own accord. Men travel in a boat, the rowers go ashore, but those remaining on board fail to take up the oars and to row and imagine that the boat will move as before.
+
+#### 4
+
+"Yes, very true, if only everybody understood it and realized that it is evil and unnecessary," thus argue some people on the subject of human ills. "Suppose one man cease from evil, refusing to participate in it, what will this amount to in the life of all people? Improvements in human life are brought about by the concerted action of the whole society and not by individual effort."
+
+True enough, one swallow does not make springtime. But just because one swallow does not make springtime, should that one swallow that senses the spring refrain from flying, sit still and wait? If every bud, every blade of grass did so, springtime would never come. Even so in the coming of the Kingdom of God I must not stop to think whether I am the first or the one thousandth swallow, but sensing the coming of the Kingdom of God, I must right now, though I be alone, do all I can towards its realization.
+
+"Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:
+
+For everyone that asketh, receiveth; and he that seek eth, findeth; and to him that knocketh it shall be opened."
+
+Matthew VII, 7-8.
+
+#### 5
+
+"I am come to send fire on the earth; and what will I, if it be already kindled?" _Luke XII_, 49.
+
+And why is this fire so slowly kindled? If so many centuries could pass and Christianity still has failed to alter the social order of life, how dare we think that these things come about of their own accord? The majority of people, though led to recognize the imperative truth of Christianity, still refrain from making this truth the basis of their actions. Why? Because people await a change from external conditions and refuse to comprehend that this change is attained by the efforts of each individual in his own soul and not by any external mutations.
+
+#### 6
+
+Our life is evil, why?
+
+Because men lead evil lives. And men lead evil lives because they are evil themselves. Therefore, in order to stop life from being evil, we must transform evil men into good men. How can we do this? No one can change all others, but every one can change himself. At first, it would seem, this will not mend matters. What is one man against all others? But everybody complains that life is evil. And if everybody realizes that the evil of life is due to people being evil, and that no one can change all others, but every body can change himself, and transform himself into a good man out of an evil man, and everybody begins to cor rect himself, then immediately all lives will improve.
+
+Therefore it is our fault that life is evil, and it de pends on us to make it good.
+
+### VI. The Effort of Striving After Perfection Yields True Happiness to Man
+
+#### 1
+
+Moral effort and the joy of the consciousness of life follow one another as the joy of rest follows the weari ness of physical labor. Without physical labor there can be no joy of resting; without moral effort there can be no joy of the consciousness of life.
+
+#### 2
+
+The reward of virtue is in the very effort of a good action.
+
+_Cicero_
+
+#### 3
+
+Man would cry out with pain if while refraining from labor he suddenly experienced the muscular ache which is the effect of manual toil. Even so the man who is a stranger to spiritual labor with his inner self experiences an agonizing pain from vicissitudes which are borne unflincingly by him who sees the chief task of life in the effort of delivering himself from sins, errors and super stitions, that is in striving after moral perfection.
+
+#### 4
+
+Look for no speedy or visible success from your strivings after good. You will not see the fruit of your efforts, for to the extent that you have advanced, so has also advanced the ideal of perfection after which you are striving. The effort of the mind is not a means for attaining a blessing, but the effort of the mind in itself is a blessing.
+
+#### 5
+
+God gave to animals all that they need, but He did not give to man all that he needs; man must attain himself all that he needs. The highest wisdom of man was not born within him; he must labor to attain it, and the greater his labor, the greater his reward. Babidic tables.
+
+#### 6
+
+The Kingdom of God is taken by force. This means that in order to be delivered from evil and to become good, we require effort.
+
+Effort is needed to refrain from evil. Refrain from evil and you will do good because the soul of man loves that which is good, and will do good if it be free from evil.
+
+#### 7
+
+You are free agents, you feel that it is so. All specious arguments that fate or a law of nature, dominates all things, will never silence the two incorruptible witnesses of human freedom: the reproaches of the conscience and the majesty of martyrdom. Beginning with Socrates and down to Christ, and beginning with Christ down to those martyrs of all times who from generation to generation have died for the truth, all martyrs of the faith prove the error of this doctrine of slaves, loudly proclaiming: "We too have loved life and loved those dear ones who made our life worth while and who implored us to give up our fight. Every heart-beat loudly appealed to us — live! and yet in obedience to the law of life we preferred death!"
+
+And beginning with Cain, down to the meanest wretch of our own day, all those who have chosen the path of evil hear in the depths of their heart the voice of condemnation and of reproach, the voice that gives them no rest, which constantly asks: "Why did you turn from the path of goodness? You could, you can make an effort. You are free agents. It is within your power to remain steeped in sins or be delivered from them."
+
+_Mazzini_
+
+## Living in the Present
+
+People imagine that the course of their life is in time in the past or in the future. But this is a delusion: the true life of men is not in time, but always IS in that timeless spot where the past and the future meet and which we inexactly call the present time.
+
+In this timeless point of the present, and therein alone, man is free, and therefore the true life of man is in the present, and in the present alone.
+
+### I. The True Life is in the Present
+
+#### 1
+
+The past is no more, the future has not yet come. What is then? Only that point where the past and the future meet. This is seemingly nothing, yet in that point is the whole of our life.
+
+#### 2
+
+We only imagine that there is time. Time is not. Time is merely a device by means of which we gradually see that which is in reality and which is ever the same. The eye does not see all of a globe at once, yet the globe exists all at once. In order that the eye may see the entire globe, the latter must be turned before the observing eye. Even the world revolves before the eyes of men in time. For the supreme reason there is no time: that which will be, is. Time and space is the disintegration of the infinite for the convenience of finite creatures.
+
+_Amiel_
+
+#### 3
+
+There is no before nor after. That which will happen to-morrow already really exists in eternity.
+
+_Angelus_
+
+#### 4
+
+There is neither time nor space: both are neces sary to us only for the understanding of things. And there fore it is an error to think that speculations regarding stars whose light has not yet reached us or regarding the state of the sun for millions of years are of any consequence. There is nothing important, nothing worth while in such speculations. All these things are idle mental diversions.
+
+#### 5
+
+If life is something beyond time, why is it mani fested in time and space? Because it is only in time and space that there can be motion, that is striving towards ex pansion, illumination, perfection. If there were no space or time, there would be no motion, and therefore no life.
+
+### II. The Spiritual Life of Man is Beyond Time and Space
+
+#### 1
+
+Time exists for the physical life alone. But the spiritual being of man is beyond time. It is beyond time because the activity of the spiritual being of man is only in efforts of the mind. But the effort of the mind is always beyond time, for it is always in the present, and the present is not in time.
+
+#### 2
+
+We cannot picture to ourselves a life after death, nor can we remember a life before birth, because we can not picture to ourselves anything that is beyond time. Yet we know best of all our life beyond time — namely our pres ent life.
+
+#### 3
+
+Our soul is thrown into our body where it finds numbers, time and space. Meditating upon these things it calls them nature or necessity, and indeed it cannot think otherwise.
+
+_Pascal_
+
+#### 4
+
+We say that time is passing. This is wrong. We are passing and not time. As we sail on a river it seems to us as though the shores of the river were moving instead of our boat. Even so it is with time.
+
+#### 5
+
+It is well to remember frequently that our true life is not the outward physical life which we live here on earth, before our eyes, but that alongside of this life there is within us another life, an inner and spiritual life which has no beginning and no end.
+
+### III. True Life is Only in the Present
+
+#### 1
+
+The ability to remember the past and to imagine the future is given us only in order to enable us, guided by this or that consideration, to decide more correctly our actions in the present, and not to regret the past or build for the future.
+
+#### 2
+
+Man lives only in the present instant. Everything else is either gone or is uncertain of occurring.
+
+_Marcus Aurelius_
+
+#### 3
+
+We worry over the past and spoil our future merely because we pay too little attention to the present. The past is gone, the future is not yet, only the present exists.
+
+#### 4
+
+Our future state will always seem a dream of our present state.
+
+Not the length of life, but its depth is of consequence. The important thing is not the duration of life, but how to live beyond time. And we live beyond time only by an effort towards righteousness. If we live in this manner we raise no question of time.
+
+_Emerson_
+
+#### 5
+
+"Live for a day — live for an age" — the meaning of this adage is to live as though any moment you await the last hour of your life, and have time to attend only to the most important matters, and at the same time so to live as though you could continue to do without end that which you are doing.
+
+#### 6
+
+Time is back of us, time is ahead of us, but it is not with us. If you dwell on that which had been or on that which will be you will lose sight of the most important thing: living in the present.
+
+#### 7
+
+"A moment is only a moment," man so lightly re gards the moment as to let it slip, and yet his whole life is solely in that moment, only in the moment of the present can we make that effort which will take the Kingdom of God by force both within us and beyond us.
+
+#### 8
+
+Not to-morrow, but to-day alone can you overcome evil habits.
+
+_Confucius_
+
+#### 9
+
+Nothing is of consequence excepting that which we are doing in the present moment.
+
+#### 10
+
+It is well not to give thought to the morrow. To avoid doing so there is only one means: to think unceasingly whether I am fulfilling the task of the present day, hour and moment.
+
+#### 11
+
+When associating with others or when carried away by the thoughts of the past or of the future, it is difficult to realize that your life is right now, in the present moment. But how important and precious it is to remember this. Try to train yourself to do so. Man will avoid much evil if he but train himself to remember that only the present is important in life, that the present alone exists. All else is a dream.
+
+#### 12
+
+The moment you delve in the past or in the future you have left the present life, and you feel orphaned, hampered and lonely.
+
+#### 13
+
+"How much moral suffering — and all that to die after a few moments. Is it worth while to worry?"
+
+This is untrue. Your life is now. There is no time, the present moment is worth many centuries if in this pres ent moment you live with God.
+
+_Amiel_
+
+#### 14
+
+They say man is not free because everything he does has its own cause preceding it in time. But man always acts in the present, and the present is beyond time, it is merely the point of contact between the past and the future. Therefore in the moment of the present man is always free.
+
+#### 15
+
+The divine force of life manifests itself only in the present; therefore the activities of the present must have divine characteristics, that is, must be rational and good.
+
+#### 16
+
+A wise man was asked: what is the most important thing? Who is the most important man? And what time of life is the most important?
+
+And the wise man replied: The most important thing in life is to love all people, for therein is the concern of every man's life.
+
+"The most important man is the one with whom you have dealings at the present moment, for you cannot know whether you will ever have dealings with any one else.
+
+"But the most important time is the present, for in that alone a man has power over himself."
+
+### IV. Love is Manifested in the Present Only
+
+#### 1
+
+The paramount thing in life is love. And you can not love in the past or in the future. You can love only in the present, now, this instant.
+
+#### 2
+
+Only when you are not guided in your actions by the past or by the future, but by the commands of your soul in the present, can you act in full harmony with love.
+
+#### 3
+
+Love is the manifestation of the divine principle for which there can be no time, and therefore love mani fests itself only in the present, now, this instant.
+
+#### 4
+
+Do not think of the future, but endeavor right now to make life joyful to yourself and to others. "Let the morrow take care of itself." This is a great truth. It makes life worth while not to know what is needful for the future. Only one thing is surely needful and is always worth while — to love others at the present moment.
+
+#### 5
+
+To love in general means to do good. This is how we all understand love and cannot understand it otherwise.
+
+And love is not a mere word, but that which we do for the good of others.
+
+If a man decides that he must abstain from the de mands of the slightest love manifestation in the present for the sake of some greater love in the future, he only de ceives himself and others and loves no one but himself.
+
+There is no love in the future, love can be only in the present. If a man does not do the works of love in the present, there is no love in him.
+
+#### 6
+
+You seek that which is good. But that which is good can be only now. There can be no good in the future, for there is no future. There is only the present.
+
+#### 7
+
+Never postpone a good deed if you can do it to day, for death cannot stop to examine whether you have or have not done what you ought. Death waits for no man, waits for nothing. Therefore the most important thing for man is that which he is doing at the present moment.
+
+#### 8
+
+If we only remembered more frequently that lost time cannot be returned, that evil once committed cannot be undone, we would do more good and commit less evil.
+
+#### 9
+
+Do not let us delay being just and compassionate. Do not let us wait for some extraordinary suffering — either our own or that of other people. Life is short, let us therefore make haste to rejoice the hearts of our companions on this short journey. Let us make haste to be good.
+
+_Amiel_
+
+#### 10
+
+If you can do a good deed or show love to someone take heed to do so at once, otherwise the opportunity may pass never to return.
+
+#### 11
+
+Good men forget the good they have done; they are so busy about that which they do at the present moment that they can give no thought to what they did in the Past Chinese proverb.
+
+#### 12
+
+Life now, at the present moment, this is the state in which God dwells within us. And therefore the present moment is the most precious of all. Make use of all the forces of your soul so that this moment pass not in vain, so that you may not miss God who can be manifested in you.
+
+### V. The Error of Preparing for Life Instead of Living It
+
+#### 1
+
+"I may depart for a season from the things which my conscience demands of me, because I am not quite ready," says one. "But I will get ready when the time comes and will then live in perfect accord with the dictates of my conscience."
+
+The error of such reasoning is in the fact that the man departs from the life in the present, which is the only real life, and puts it off to some future, whereas the future does not belong to him.
+
+In order not to fall into this error man must remember and realize that he has no time to make preparations, that he must lead the best life he can right now, just as he is, that the only improvement he needs is improvement in love, and this improvement is effected only in the present. There-
+
+fore, without putting things off, man must live every mo ment endeavoring with all his might to fulfill that calling for which he came into the world and which alone can give him true happiness. Man must live thus because he knows that any moment he may be deprived of the possibility of the fulfillment of that calling.
+
+#### 2
+
+"I will do this when I grow up." "I will live so when I finish college, or when I get married." "And I will do so when I raise children, or marry off my son, or when I acquire wealth, when I move to another city, or when I reach old age."
+
+Thus speak children, adults and old people, yet no man knows whether he will survive until evening. We cannot know about any of these things whether we succeed in ac complishing them or not, as death may interfere.
+
+Death cannot interfere with one thing only; death can not prevent us from fulfilling the will of God at any moment of our life — and that is to love all people.
+
+#### 3
+
+We frequently think and say that we cannot do all the things which we ought to do because of the condition in which we now find ourselves. How unfair this is. That inner labor wherein consists life is always possible. You are in prison, you are ill, you are restrained from any kind of outward activity, you are humiliated, tortured — but your inner life is in your power. In your thoughts you can re proach, condemn, envy, hate, or on the other hand still in your thoughts you can crush all these feelings and replace them with good feelings. Thus every moment of your life is yours, nor can anyone take it away from you.
+
+#### 4
+
+When I say: "I cannot do so" I use a wrong ex pression. I should say: "Formerly I could not do so." I know full well that at any instant in the present I can do with myself what I will. And it is well for man to know this.
+
+#### 5
+
+The consciousness of illness, worry about curing it, and particularly this thought: "I am ill now and cannot, but when I recover I will do so and so" — this is a great error. It is like saying: I do not want that which is given me, I desire that which I have not. We can always rejoice in what we have now, and we can always do all pos sible things through that which is — that is through the forces which we have.
+
+#### 6
+
+Every present hour is a critical and decisive hour. Note in your heart that every day is the best day of the year, every hour the best hour, every instant the best in stant. The best, because it is the only one you have.
+
+_Emerson_
+
+#### 7
+
+In order to live your life in the best manner pos sible, you must remember that all of your life is in the present and endeavor to act in the best way possible every present instant.
+
+#### 8
+
+It is not well with you, and you imagine that it is because you cannot live as you would, and that you could more easily accomplish the things you ought if your life had been cast differently. This is wrong. You have all that you so much desire. Every instant you can do the very best that is possible to you.
+
+#### 9
+
+In life, in real life there can be nothing better than what is. To wish for anything better than what is is blasphemy.
+
+#### 10
+
+Important deeds, great deeds, deeds which can be finished in the future only are not truly deeds performed for God. If you believe in God you will believe in living in the present, and you will do the things that are completed in the present.
+
+#### 11
+
+The closest approach to God is the greatest concentration on the present, and on the contrary the more you are taken up with the past or the future, the further you get away from God.
+
+#### 12
+
+Memento mori, remember death! This is a great saying. If we only bore in mind that we should inevitably die and that very soon, our life would be entirely different. If a man knows that he will die inside of thirty minutes, he will not do anything trifling or foolish in these last thirty minutes, surely not anything evil. But is the half century or so that separates you from death essentially different from a half hour?
+
+### VI. The Consequences of Our Acts are God's Business, Not Ours
+
+#### 1
+
+All the consequences of our acts cannot ever be subject to us, because all the consequences of our acts are infinite in an, infinite world and time.
+
+#### 2
+
+If you can see all the consequences of your activity know thereby that your activity is trifling.
+
+#### 3
+
+People say we cannot live if we do not know what awaits us. We must prepare ourselves for that which will be. This is wrong. The genuinely good life is when we take no concern in what will happen to our body, but in what we now need for our soul. And we need for our soul but one thing: to do that which brings our soul into union with all people and with God.
+
+#### 4
+
+Our present acts this instant, now, are our own, but what will become of them, that is God's business.
+
+_St. Francis d'Assisi_
+
+#### 5
+
+When living the life of the spirit, that is in har mony with God, man may not know the consequences of his acts, but he will assuredly know that these consequences will be blessed.
+
+#### 6
+
+An act performed without any speculations as to its consequences, and solely in obedience to the will of God is the best act that a man can perform.
+
+#### 7
+
+When you give thought to the consequences of your activity you feel your weakness and nothingness. But the moment you realize that your business is now to do the will of Him who sent you here, you feel free, joyful and strong.
+
+#### 8
+
+If a man gives thought to what will come of what he is doing, he is surely doing something for his own self.
+
+#### 9
+
+The reward of a good life is nowise in the future, it is in the present. Do well now, and it will now be well with you. And if you do good works, the consequences cannot be otherwise but good.
+
+### VII. Men Realizing the Meaning of Life in the Present Do Not Concern Themselves with the Problem of Life After Death
+
+#### 1
+
+Thoughts of a future life confuse us. We ask our selves what will be after death? But we cannot ask this; we cannot ask this because life and future are contradic tory terms; life can be in the present only. It seems to us that life was and will be, but life only is. It is not for us to decide the problems of the future, but how to live now, in the present.
+
+#### 2
+
+We are always in ignorance of the physical life, because the physical life has its entire course in time, and we cannot know the future. But in the domain of the spiritual there is no future. Thus the uncertainty of our life diminishes to the extent that our life passes from the physical to the spiritual, to the extent that we live in the present.
+
+#### 3
+
+We must honestly and scrupulously perform the task set before us, no matter whether we hope some day to be angels or believe that we once were molluscs.
+
+_Ruskin_
+
+#### 4
+
+The principal problem of our life is whether in the brief span of life granted us we do the will of Him who sent us into life. Are we doing it?
+
+#### 5
+
+In the course of life, particularly in the course of a good life, the importance of time and the interest in the future gradually fade away. The older we become, the more quickly the time passes, and the less importance is at tached to what will be, but increasingly more to that which is.
+
+#### 6
+
+If you can soar in spirit above space and time you find yourself every moment in eternity.
+
+_Angelus_
+
+## Doing Good and Kindness
+
+### I. To render Good for evil is more natural, agreeable and rational than to render evil for evil.
+
+#### 1
+
+And when they came to the place called Calvary, there they crucified him, and the malefactors, one on the right hand, and the other on the left.
+
+Then said Jesus, "Father, forgive them; for they know not what they do." And they parted his raiment, and cast lots.
+
+_Luke XXIII_, 33-34.
+
+#### 2
+
+No one has ever wearied of obtaining for himself all kinds of blessings. But the greatest blessing which a man could obtain for himself is to act in harmony with his reason, and this law commands him to do good to others unceasingly as the highest blessings attainable.
+
+_Marcus Aurelius_
+
+#### 3
+
+Render good for evil.
+
+#### 4
+
+How to take revenge on your enemy? Try to do him as much good as you can.
+
+#### 5
+
+Overcome wrath with meekness, evil with good, miserliness with gifts, falsehoods with truth.
+
+_Giampada_
+
+#### 6
+
+Treating our neighbors as they deserve, we only make them worse. But treating them as though they were better than they really are we force them to become better.
+
+_Goethe_
+
+#### 7
+
+Render good for evil, and you destroy all the plea sure in the evil man which he derives from his evil doing.
+
+He who but once has experienced the pleasure of rendaring good for evil will never miss an opportunity of ex periencing this joy.
+
+### II. In Order to Believe in That Which is Good, It is Necessary to Commence to Do Good
+
+#### 1
+
+Adorn each passing day with a kindly deed.
+
+#### 2
+
+It is best of all to commence a day like this; think on awaking whether you cannot give pleasure this day, though it be to only one person.
+
+_Nietzsche_
+
+#### 3
+
+Kindness is our duty. He who frequently fulfills this duty and sees how his good intentions are materialized will ultimately really love him to whom he has been kind. The words "love thy neighbor as thyself" do not mean that you must first love him, and then, as the result of your love, do good unto him. No, you must do good to your neighbor, and your kindness will kindle the love of hu manity in your heart, which will be the result of your readiness to do good.
+
+_Kant_
+
+#### 4
+
+Good will is not good because of that which it effects or accomplishes, not because of its usefulness in attaining some determined aim, but solely because of its volition, that is strictly per se: considered by itself, with out any comparison, it has a far higher value than any thing that could be accomplished by it in favor of any in clination, if you will in favor of all inclinations taken to gether. If through some adversity of fate, or by reason of too scant an equipment of abilities allotted by a step motherly nature, such goodwill were utterly deprived of the possibility of realzing its intentions, if in spite of its greatest effort it achieved nothing, but just remained merely goodwill (of course, not the mere bare desire on our part, but with the employment of every means within our power), even in this case it would sparkle of itself as a precious diamond — something that contains its fullest value in itself.
+
+_Kant_
+
+#### 5
+
+What shall it profit him who lives a virtuous do mestic life if he withdraws into a desert? Among all those who work for future bliss, he will gain most of all who lives well with his family. Hindu -wisdom.
+
+#### 6
+
+No one can have any idea of what is good until he begins to do good. Nor can anyone truly love that which is good until he learns to do it frequently and at a sacri fice. Nor can anyone find peace in doing good until he does it constantly.
+
+_Martineau_
+
+#### 7
+
+If you can not train yourself to seek out opportu nities for doing good, even as a huntsman pursues his prey, at least do not omit an opportunity to do good.
+
+### III
+
+The doing of good cannot be measured either by the need of the recipient or by the sacrifice of the giver, but merely by that communion in God which is established be tween the recipient and the giver.
+
+#### 1
+
+Life is not always a blessing. Only good life is a blessing.
+
+#### 2
+
+Nature has so arranged it that offences are remem bered longer than good actions. The good is forgotten, but offences stubbornly persist in memory.
+
+#### 3
+
+It is not virtue, but a spurious counterfeit and imita tion of it, if we are led to do our duty by the promise of a reward. Cicero.
+
+A wise man questioned the spirit of wisdom how to at tain bodily well-being and happiness without imperiling the soul, and how to save the soul without imperiling the body.
+
+The spirit replied: Do not slander, lest slander and backbiting fall back upon yourself, for it is said that every other evil spirit attacks face to face, but slander alone at tacks from the rear.
+
+Do not yield to wrath, because the man who has yielded to wrath forgets his obligations and omits to do good.
+
+Beware of timidity, for the timid loses the pleasures of the world and of the soul and destroys both the body and the soul.
+
+Beware of lustfulness, for the fruits of it are disease and remorse. Hold no envy in your heart, lest you poison your life. Do not commit sin out of a feeling of shame.
+
+Be industrious and taciturn, live by your daily earn ings and save for others and for God. This practice will be the most worthy manifestation of your activities.
+
+Do not steal the goods of others, nor neglect your own work, for it is said that he who compels others to feed him is a man-eater.
+
+Do not enter into an argument with a man of cunning, but rather leave him entirely alone.
+
+Do not enter into partnership with a man of greed, nor trust his leadership.
+
+Do not associate with the ignorant. Do not enter into explanations before fools, take no money from an evildoer, nor enter the king's palace in the company of slanderer.
+
+_Oriental wisdom_
+
+#### 5
+
+When the question is asked what is really that pure morality, the touchstone by which we must test the moral purport of our every act, I am constrained to confess that only philosophers could make the solution of this question a matter of doubt, for sound human reason considers this question definitely settled a long time back, not in abstract and generalizing formulas, it is true, but by differentiating the accomplished acts which we differentiate as positively as we distinguish our right hand from our left.
+
+_Kant_
+
+#### 6
+
+Do good to your friends so that they may love you still more; do good to your enemies so that they may some day become your friends.
+
+When you speak of your enemy, remember there may come a day when he will become your friend.
+
+_Cleobulos_
+
+#### 7
+
+All men more or less closely approach one of the two opposite boundaries: life for self alone, and life for God alone.
+
+#### 8
+
+Know firmly and feel profoundly that you must devote each day of your life to the welfare of others, doing for them all that you can. Doing it, not talking about it.
+
+_Ruskin_
+
+#### 9
+
+To follow one good deed with another so that there be no interspace between them, this is what I call a happy life.
+
+_Marcus Aurelius_
+
+#### 10
+
+The more a man gives to others, and the less he demands for himself, the better he is. The less he gives to others and the more he demands for himself, the worse he is.
+
+#### 11
+
+If you have done wrong to your neighbor, though the wrong be trifling, regard it as great; and if you have done good to your neighbor, though this good be great, regard it as trifling; but even a slight good done to you regard as great.
+
+The blessing of God will descend on him who gives to the poor; a double blessing will rest upon him who in giving to the poor receives them and lets them depart with kindness.
+
+#### 12
+
+When doing good, be grateful for being able to do it.
+
+True good is done by us only when we do it without noticing it; when we come out of our own self in order to live in others.
+
+### IV. Goodness Overcomes All Things, But is Insuperable Itself
+
+#### 1
+
+All things can be resisted, excepting goodness alone.
+
+#### 2
+
+Not the condemnation of evil, but the elevation of good is the means of establishing harmony in the life of the individual and of the world. An improperly disposed man condemns evil, but this condemnation is in itself the worst of evils, as it merely aids its growth, while paying no at tention to it, but caring for that which is good will lead to the destruction of evil.
+
+_Lucy Mallory_
+
+#### 3
+
+He who loves to exert his mind in order to search out the law of his duty is close to the science of morality.
+
+He who endeavors to do his duty is close to the love of humanity, that is to the desire to do good to all people.
+
+He who blushes for his inefficiency in doing his duty is close to that strength of soul which is necessary to the proper fulfilment of duty. Chinese wisdom.
+
+#### 4
+
+Morality cannot be independent of religion, for it is not only one of the effects of religion, that is of that re lationship of man to the world of which he is conscious, but is already included in that relationship.
+
+#### 5
+
+If there is a motive back of a good deed it is no longer good, any more than if it has a reward as an effect. Good is beyond the chain of cause and effect.
+
+#### 6
+
+Even as torches and fireworks pale and fade from sight in the radiance of the sun, so wisdom and even genius as well as beauty pale and fade before the goodness of heart.
+
+_Schopenhauer_
+
+#### 7
+
+Infinite tenderness is the greatest gift and posses sion of all truly great.
+
+_Ruskin_
+
+#### 8
+
+The tenderest plants break their way through the toughest soil and through rocky fissures. Even so good ness. What wedge, what hammer, what battering ram can compare with the force of a good and sincere man? Noth ing can resist it.
+
+_Thoreau_
+
+#### 9
+
+Where there is a man there is an opportunity to do him good.
+
+_Seneca_
+
+To answer an evil word with a good one, to render favor in return for an injury, to turn the other cheek when your cheek is struck, this is the only means of taming malice.
+
+### V. Kindness in Relations Between Men is Obligatory. If You are Not Good to a Man, You are Evil and Provoke Illwill in Him
+
+#### 1
+
+Be not hard of heart towards him who is subjected to temptation, but try to comfort him even as you would desire to be comforted.
+
+#### 2
+
+Do not put off until to-morrow what you can do to day. Do not compel another to do that which you can do yourself. Pride costs more than all things needed for food, drink, shelter and raiment taken together.
+
+#### 3
+
+To have done too little is rarely a cause for regret. What a lot of trouble do we go through on account of things that never happen, merely worrying that they might hap pen. If angry count ten; if very angry count up to one hundred.
+
+_Jefferson_
+
+#### 4
+
+Despise no man, stifle in your heart all presumptu ous judgment and insulting suspicions against your neigh bor, strive to account for the actions and for the words of others with a guileless heart. Give others preference before yourself in all sincerity.
+
+Goodness beautifies life and solves its contradictions, it clears up that which is perplexing, renders easy that which is difficult and turns gloom into joy.
+
+### VI. Goodness is to the Soul What Health is to the Body; If You Possess It You Do Not Notice It, and It Gives You Success in Every Undertaking
+
+#### 1
+
+People of highest virtue do not account themselves virtuous, and that is why they are virtuous. People of minor virtuous attainments never forget their virtues, and that is why they are not virtuous. Highest virtue does not assert itself nor proclaim itself. Virtue of lowest order asserts and proclaims itself.
+
+Kindheartedness of the highest order acts, but does not try to proclaim itself. Kindheartedness of the lowest order asserts itself and tries to proclaim itself.
+
+Justice of the highest order acts, but does not try to proclaim itself. Justice of the lowest order acts and tries to proclaim itself.
+
+Propriety of the highest order acts but does not try to proclaim itself. Propriety of the lowest order acts, but when it fails to evoke a response, it enforces obedience to its dictates.
+
+Thus when virtue of the highest order is lost, kind heartedness supplants it; when kindheartedness is lost, jus tice supplants it; but when justice is lost propriety sup plants it.
+
+The rules of propriety are only the semblance of truth and the origin of all disorder. Wit is a blossom of reason, but the origin of ignorance.
+
+For this reason the man of holy life clings to the fruit and not to the blossom, he rejects the latter and clings to the former.
+
+_Lao-Tse_
+
+#### 2
+
+The man of highest virtues strives to walk upon the path of rectitude to the end. To go half-way and weak en, this is the thing to be afraid of.
+
+_Chinese wisdom_
+
+#### 3
+
+Virtue in man must have the property of a precious stone which unalterably preserves its natural beauty no matter what happens to it.
+
+_Marcus Aurelius_
+
+#### 4
+
+The consciousness of a good life is its ample re ward. Learn the joy of doing good. 'Do good secretly and blush if it is made known.
+
+#### 5
+
+Man increases his happiness to the extent that he brings it into the lives of others.
+
+_Bentham_
+
+#### 6
+
+It is the will of God that we live by mutual happi ness, and not by mutual unhappiness and the death of others. People help one another with their joys and not with sorrow.
+
+_Ruskin_
+
+#### 7
+
+The well-being of a plant is in the light; therefore a plant which is grown in the open can not question, nor does indeed question, in which direction it must grow, whether the light is good or not, or if it should not rather wait for some other or better light, but accepts the one light that there is in the world and strives towards it; even so the man who has renounced selfish well-being does not argue what portion of the things taken from others he might give away; and to what favored creatures, or whether there is some higher love than the one which has proclaimed its demands, which is accessible to him and is immediately before him. And there is no other love than to lay down your soul for your neighbor; love is only then love when it is a sacrifice of self. Only when a man gives to another not only his time and his strength, but when he consumes his body for the object of his love, when he yields up his very life, only that do we all recognise as love and only therein do we all find blessedness, which is the reward of love. And only thanks to the fact that there is such love among people, thanks to this fact alone does the world exist.
+
+Nothing so beautifies life as an established habit of being good.
+
+### VII. Goodness is Not Only Virtue and Joy, But is Also a Weapon of Combat
+
+#### 1
+
+It is difficult to be kind to a vicious and lying man, particularly to one who insults us, but it is just the kind of a man to whom we must be good, both for his sake and for our own.
+
+#### 2
+
+"Then came Peter to him, and said, Lord, how oft shall my father sin against me, and I forgive him? till seven times?
+
+"Jesus saith unto him, 'I say not unto thee, Until seven times; but Until seventy times seven.'"
+
+_Matthew_, _XVIII_, 21-22.
+
+#### 3
+
+If you truly believe in the correctness of your un derstanding of life and desire to do good to people, you will, if the occasion calls for it, endeavor to lay your opin ions before others, in order to assure those with whom you converse of the justice of your understanding of life. And in such instances, the more your companion is in error, the more important it is and the more desirable it is that he should understand and appreciate that which you would prove to him.
+
+And yet frequently we act in a manner entirely con trary to this. We converse well with the man who is agreed or almost agreed with us; but when we see that our com panion does not believe in the truth which we accept, or even does not understand it, we, indeed, try to explain the truth to him, but if he persists in disagreeing with us, or assumes as we think a stubborn attitude, or perverts the meaning of our words, how easily do we become irritated and lose our serenity. We either grow angry and say mean things to our companion, or stop the conversation, thinking that it is not worth while to argue with this dull or stub born man.
+
+If you mean to show the man with whom you converse some particular truth, the main thing is not to be irritated, not to make use of a single unkind or offensive expression.
+
+_Epictetus_
+
+#### 4
+
+If you discover a fault in any man, correct him meekly, and show him wherein he is at fault. If your at tempt is fruitless, blame only yourself, or better still blame no one.
+
+_Marcus Aurelius_
+
+#### 5
+
+If you fall out with a man, if he is dissatisfied with you, if he disagrees with you though you are in the right— the guilt is not his, but it is in your lack of kindness.
+
+### VIII. Without Truthfulness No Good Deed Can Be Performed, No Truth Can Be Uttered
+
+#### 1
+
+Goodness and truth are one and the same.
+
+_Giusti_
+
+#### 2
+
+A stalk springs up at times and fails to bring forth blossoms. Or it blossoms at times and fails to bring forth fruit.
+
+Those who know the truth are not equal to those who love it; and those who love it are unequal to those who lovingly do the works of truth.
+
+_Confucius_
+
+#### 3
+
+"And why cail ye me, Lord, Lord, and do not the things which I say?
+
+"Whosoever cometh to me, and heareth my sayings, and doeth them, I will shew you to whom he is like:
+
+"He is like a man which built an house, and digged deep, and laid the foundation on a rock: and when the flood arose, the stream beat vehemently upon that house, and could not shake it: for it was found upon a rock.
+
+"But he that heareth, and doeth not, is like a man that without a foundation built an house upon the earth; against which the stream did beat vehemently, and immediately it fell; and the ruin of that house was great."
+
+_Luke_, _VI_, 46-49.
+
+#### 4
+
+Answer hatred with love. Examine a difficulty while it is yet easy of solution. Take up great matters, while they are still small. The most difficult enterprises in the world have their inception while they are still easy. The greatest enterprises in the world have their inception while they are still small.
+
+_Lao-Tse_
+
+#### 5
+
+There are two paths leading to perfect virtue: to be just and to refrain from harming any living creature.
+
+The Book of Manu.
+
+There is nothing worse than pretension to goodness. Pretension to goodness is more repulsive than out and out malice.
+
+### IX. What a Necessary Condiment to Everything is Kindness. The Best of Qualities are Worthless Without Kind ness, and the Greatest Vices May Be Forgiven Because of It
+
+#### 1
+
+There is a natural kindness, depending on external and bodily causes — inheritance, good digestion or success. This kindness is very agreeable both to him who manifests it and to others. And there is a kindness proceeding from inner spiritual labor. This sort of kindness is less at tractive, but whereas the first may not only disappear but even turn into malice, the second not only can not disappear, but constantly grows stronger.
+
+#### 2
+
+If when doing a good deed you experience a pang of hostility or cause others to experience hostility towards yourself, stop immediately. It is a proof that you do not know how to do that which you undertook to do. Do you feel a physical or a spiritual pain, do you feel bitterness? stop, and on the one hand learn to do good without ex periencing a feeling of pain, and on the other hand eliminate that which has caused the pain.
+
+#### 3
+
+We must value even the appearance of goodness in others, because from this game of pretence whereby they secure respect for themselves which may be possibly un deserved, something more serious may ultimately develop.
+
+It is only the mere appearance of good in our own self which we must relentlessly extirpate, tearing down that veil with which our egotism would cover up our defects.
+
+_Kant_
+
+#### 4
+
+A good deed accomplished gratifies, but does not satisfy. We have always the feeling that we ought to have done much more.
+
+#### 5
+
+No matter how much good you do, there will re main something more to be desired.
+
+#### 6
+
+There is no spontaneous inclination towards morally evil actions, but there is indubitably such a spontaneous in clination to good actions.
+
+_Kant_
+
+#### 7
+
+A holy man has no relentless heart. He attunes his heart to the hearts of all people. He acts towards a virtuous man as towards a man possessing virtue, towards a vicious man as towards a man capable of virtue.
+
+_Eastern wisdom_
+
+#### 8
+
+The wiser and kindlier a man is, the more good he observes in others.
+
+_Pascal_
+
+#### 9
+
+To stimulate goodness is an important part of life.
+
+_Johnson_
+
+#### 10
+
+In order to find joy in serving human beings and all the creatures endowed with life in general, you must first learn to do no evil to human beings and other living creatures, nor to build your life upon the sufferings and the life of others.
+
+Goodness is a basic characteristic of the soul. If a man is not good, he was yielded to some delusion, error or pas sion which violates this natural characteristic.
+
+## On Refraining
+
+Men spoil their lives not so much by failing to do what they ought to do, as by doing that which they ought not to do. Therefore the greatest effort man requires in the at tainment of a good life is to refrain from doing that which he ought not to do.
+
+### I. A Good Life Requires Restraint Above All Else
+
+#### 1
+
+There is one thing which is most essential to all men. It is to live a good life. To live a good life, however, means not so much to do the good things which we can do as to refrain from doing the evil things which we can leave undone.
+
+#### 2
+
+All men of our present age know our life is evil, and they not only condemn the order of our life but do things which in their opinion should make life better. But life instead of improving grows thereby steadily worse. Why is it so? Because men adopt the most intricate and ingenious expedients, but fail to do the simplest and easiest thing; they do not abstain from participation in those things which make our life evil.
+
+#### 3
+
+A man can only then know what he ought to do when he clearly understands what he ought not to do. Re fraining from doing that which he ought not to do, he will inevitably do the things which he ought to do, though he may not realize why he is doing that which he does.
+
+#### 4
+
+Question: what is best to do when you are in a hurry?
+
+Answer: nothing.
+
+#### 5
+
+When courage fails you act towards yourself as to wards an invalid; but in particular undertake nothing.
+
+#### 6
+
+If you are in doubt how to act, whether to do a thing or not to do it, know in advance that it is always better to forbear than to do. If you are not able to restrain yourself, or if you know for a certainty that the deed is good, you will not debate with yourself whether to do it or not to do it; but if you debate with yourself then, in the first instance, you know you can refrain from doing it, and further you may be sure that the thing is not wholly good. If it were wholly good you would not debate with yourself.
+
+#### 7
+
+If you desire something so much that you feel you can not restrain yourself, do not trust yourself. It is un true that a man can not restrain himself from anything. Only he can not restrain himself who has in advance con vinced himself that he can not restrain himself.
+
+#### 8
+
+Let every man, even a mere youth, examine his life; and if you regret but once having refrained from doing even that which is good and which you ought to do, there will be hundreds of instances causing you to regret having done that which is not good and which you ought not to have done.
+
+### II. Consequences of Unrestraint
+
+#### 1
+
+Less harm results from not doing that which we ought to do than from failing to forbear doing that which we ought not to do.
+
+#### 2
+
+Lack of restraint in one action weakens our power of restraint in another. The habit of unrestraint is a secret current beneath the foundation of a house. Such a struc ture is bound to collapse.
+
+#### 3
+
+It is worse to overdo than not to do enough. It is worse to be hasty than to be tardy.
+
+The pangs of conscience are keener for what you have done than for what you have failed to do.
+
+#### 4
+
+The more difficult is a situation the less action it calls for. It is by activity that we generally spoil that which is commencing to mend.
+
+#### 5
+
+The majority of men known as mean have be come so through accepting their evil temper as something lawful and through yielding to it without making an effort to restrain themselves.
+
+#### 6
+
+If you feel that you have not the strength to re strain yourself from a physical craving, the cause will be found in the fact that you failed to restrain yourself when you could and the craving has become a habit.
+
+### III. Not All Activity is Worthy of Respect
+
+#### 1
+
+It is a great error to think that activity as such, without taking into consideration what it consists of, is something honorable and worthy of esteem. The question is wherein does this activity consist and under what con ditions does the person concerned refrain from action.
+
+#### 2
+
+People frequently proudly abstain from innocent amusements saying that they have no time for them, that they are busy. Yet apart from the /fact that a goodnatured and merry game is more needful and important than many kinds of business, the very business for the sake of which they forego pleasure is frequently of such nature that it were better left undone.
+
+#### 3
+
+Fussy superficial activity is not only unnecessary, but is directly harmful to the genuine progress of life. Without the distractions afforded by the labors of others, doing nothing is a most painful condition (if it be not filled with inner labors), and therefore if a man lives outside of a state of luxury which is furnished by the labor of others, he will not be idle. The principal harm does not come from idleness but from doing that which is unnecessary and is. injurious.
+
+### IV. Man Can Only Then Restrain Himself From Evil Habits When He Realizes That He is a Spiritual and Not a Physical Being
+
+#### 1
+
+In order to learn restraint man must learn to divide himself into a physical and a spiritual man and to compel the physical man to do not that he desires but that which the spiritual man desires.
+
+#### 2
+
+When the soul is asleep and inactive, the body ir resistibly obeys the manifestation of those feelings which are evoked in it by the actions of the people around. When these people yawn, it yawns also; when they are excited, it also becomes excited; when they are angry, it also is angry; when they are moved and weep, it also sheds tears.
+
+This involuntary subjection to outward stimulations is the cause of many evil actions which are out of harmony with the dictates of the conscience. Watch out against these external influences and refuse to yield to them.
+
+#### 3
+
+Only if you have trained the physical man from childhood to obey the spiritual man will you find it easy to restrain yourself from your desires. The man who has learned to restrain himself from his desires will find life in this world joyful and easy.
+
+### V. The More You Combat Unrestraint the Easier the Struggle Becomes
+
+#### 1
+
+Between man's reason and his passions there exists a state of civil war. Man could have a little rest if he had reason without passions or even passion without reason. But having both, he can not escape a struggle, he can not be at peace with the one without fighting against the other. He is always at war within himself. And this war is a necessity: it is life.
+
+_Pascal_
+
+#### 2
+
+In order to esteem others as ourselves, and to do unto them as we would that they do unto us (and herein is the principal concern in life) we must be master of our own self, and in order to be master of our own self, we must train ourselves for it.
+
+#### 3
+
+Every time that you greatly desire to do anything, stop and think: is that which you so greatly desire truly good?
+
+#### 4
+
+In order not to commit any evil act, it is not enough to abstain from the act itself; learn to abstain from evil conversation, and especially refrain from evil thoughts. As soon as you observe that a conversation is evil — if you rid icule, condemn or abuse another — stop, be silent, don't listen. Do the same when evil thoughts enter your head: are you thinking evil of your neighbor (it is all the same whether your neighbor is deserving of criticism or not), stop and try to think of something else.
+
+Only when you learn to abstain from evil words and evil thoughts will you have strength to abstain from evil deeds.
+
+#### 5
+
+No matter how often you fall without attaining vic tory over your passions, do not lose courage. Each effort of the struggle lessens the power of passion and facilitates victory over it.
+
+#### 6
+
+The driver does not abandon his reins because he fails to stop his horses at once, but continues to hold them — and the horses halt. Even so with our passions: if you fail once, keep on struggling, and finally you will be the master and not your passions.
+
+#### 7
+
+Every passion in the heart of man is first a sup pliant, then a guest and finally the master of the house. Try and repel such a suppliant, do not open before him the doors of your heart.
+
+### VI. The Value of Restraint to Individuals and to the Human Race
+
+#### 1
+
+If you would be free, teach yourself to restrain your desires.
+
+#### 2
+
+Who is wise? He who learns a little from every body. Who is rich? He who is content with his lot. Who is strong? He who restrains himself.
+
+_Talmud_
+
+#### 3
+
+Some say that Christianity is the doctrine of weak ness because it does not prescribe acts but mainly the re fraining from acts. Christianity a doctrine of weakness! A fine doctrine of weakness, the founder of which died a martyr on the cross rather than be untrue to himself, and among whose followers there are numbered thousands of martyrs, the only people who boldly faced the evil and with stood it. The tyrants of old who put Christ to death, and the present day tyrants know full well what sort of a doc trine of weakness it is, and they dread this doctrine above all things. They feel instinctively that this doctrine alone will most surely destroy and uproot that order of things which they maintain. Much more strength is required to abstain from evil than to perform the most difficult act which we account good.
+
+#### 4
+
+All distinctions of our wordly estate are as nothing compared with the dominion of man over self. If a man fall into the sea, it does not matter whence he fell or into what sea. The only essential thing is can he swim or not. Strength is not in external conditions but in the art of self-mastery.
+
+#### 5
+
+True strength is not in him who overcomes others but in him who overcomes himself, who does not let the animal in him have mastery over his soul.
+
+#### 6
+
+He who yields himself up to passionate desires, he who seeks gratification, his passions gather ever new strength and ultimately bind him with chains. He who succeeds in overcoming his passions bursts his chains.
+
+_Buddhist wisdom_
+
+#### 7
+
+Young man! Deny yourself the gratification of your desires (for amusements, luxuries, etc.), if not from an inclination to give up all these things altogether then at least in order to retain an undiminished capacity of enjoy ment. Such economy by postponing enjoyment will make you all the richer.
+
+The consciousness that enjoyment is within your power is more fruitful and vast (as are all ideals) than the feeling resulting from that enjoyment because enjoyment ceases with satisfaction.
+
+_Kant_
+
+#### 8
+
+Do not strive so much to do good as to be good; do not strive so much to illuminate as to be pure. The soul of man dwells as though in a glass vessel, and it is within the power of man to keep this vessel soiled or clean. In the degree that the vessel is clean, the light of truth shines through it, being a light to the man himself and to others. Therefore the principal task of man is of an inner nature, — to keep his vessel pure. Do not soil yourself, and you will have light and give light to others.
+
+#### 9
+
+Refrain only from doing that which you ought not to do, and you will do all that you ought.
+
+#### 10
+
+In order to do that which we would it is frequently necessary merely to refrain from doing that which we are doing.
+
+#### 11
+
+Gaze upon the life which the people in our world are leading; look at Chicago, Paris, London, the various cities, the factories, railways, machines, armaments, cannons, fortresses, printing establishments, museums, skyscrapers, and ask yourself the question: what is the first thing to do so that the people might lead a good life? There can be only one sure answer: cease doing all the superfluous things that the people are doing. And the superfluous in our world to-day takes in ninety-nine per cent, of the activities of men.
+
+#### 12
+
+Thin and transparent though the falsehood be which has for its source the contrast between our life and our consciousness, it becomes thinner and distends, but does not rend. And it binds together the present order of things and prevents the new order from making its appearance.
+
+The majority of people in the Christian world no longer believe in the principles of paganism, but accept the prin ciples of Christianity, acknowledging the same in their con sciousness, but their life continues the same as heretofore. In order to dissipate all the calamities and contradictions which afflict the people physically and morally, in other words in order to bring to earth the Kingdom of God which was foretold to humanity nineteen hundred years ago, men of our day need only one thing: moral effort. Just as a mere push is needed to give a liquid that has been cooled below its freezing point its proper crystal form, so just a moral effort is needed to lead humanity into that form of life which is proper to it, and this moral effort is that force which lays hold on the Kingdom of God.
+
+This effort is not the effort of a movement, the effort of the discovery of a new world philosophy and of new thoughts or the performance of some peculiar new deeds. The effort needed to enter the Kingdom of God or a new form of life is a negative effort, the effort not to follow the stream, the effort not to do the things that are not in harmony with the inner consciousness.
+
+Thus men are brought to face the necessity of such an effort both in the cruelty of life and by the clearness and spread of the Christian teaching.
+
+#### 13
+
+The minutest motion of matter affects all nature. The whole ocean is set in motion by a pebble. Even so with spiritual life, the minutest movement creates infinite results. Everything is of consequence.
+
+_Pascal_
+
+## The Spoken Word
+
+Words are expressions of thought and may serve to unite people or to separate them; therefore they must be handled cautiously.
+
+### I. Great is the Word
+
+#### 1
+
+By a word we can bring people into union, by a word we can sever their union; by a word we can serve love, and likewise by a word we can serve enmity and hatred. Beware of the word that separates people or serves enmity and hatred.
+
+#### 2
+
+Words are expressions of thought and thought is a manifestation of divine power, therefore the word must correspond with that which it expresses. It can be indif ferent, but it cannot, it must not be an expression of evil.
+
+#### 3
+
+Man is the carrier of God. He can express the consciousness of his divinity by a word. How then should he not be careful in the use of a word?
+
+#### 4
+
+Time passes, but the spoken word remains.
+
+#### 5
+
+If you have time to think before beginning to speak, think is it worth while to speak, is it necessary to speak, will you not injure someone by speaking that which you would speak. And mostly it will happen that if you first think you will not commence to speak.
+
+#### 6
+
+First think, then speak. But stop before someone says: "Enough!" Man is higher than an animal in his capacity of speech, but he is lower than the animal when gabbling at haphazard.
+
+_Saadi_
+
+#### 7
+
+After a lengthy conversation try to remember all that has been said and you will wonder how banal, futile and frequently evil was much that was said.
+
+#### 8
+
+Listen and be attentive, but say little.
+
+Never speak unless asked, but if asked, answer briefly, nor be ashamed if you must admit that you do not know the thing you are questioned about.
+
+_Sufi_
+
+#### 9
+
+If you would pass as wellinformed — learn to ques tion rationally, to listen attentively, to answer calmly and to cease speaking when there is nothing left to say.
+
+_Lavater_
+
+#### 10
+
+Praise not, judge not and dispute not.
+
+#### 11
+
+Listen to the speech of the learned man with attention, though his actions may not be in accord with his teaching. Man must have instruction, though the instruction be an inscription on the wall.
+
+_Saadi_
+
+#### 12
+
+There is a useful brief phrase: I know not. Teach your tongue to use it frequently.
+
+_Oriental wisdom_
+
+#### 13
+
+There is an ancient saying: say nothing evil of the dead. How unfair it is. It ought to be instead: Say nothing evil of the living. How much sorrow would not this rule remove from the world! Why say nothing evil of the dead? In our world it is a custom to render only exaggerated praise, in other words to tell only falsehoods, about the dead in obituaries and memorial observances. Such specious praise is harmful because it wipes out in the minds of the people the distinction between good and evil.
+
+#### 14
+
+With what shall we compare the tongue in the mouth of man? It is the key to the treasure house; when the door is locked no one can tell whether behind it are precious stones or heaps of useless rubbish.
+
+_Saadi_
+
+#### 15
+
+While wise men teach us that silence is useful, free speech is likewise needful, only at the proper time.
+
+We sin by words both if we are silent when we ought to speak, and if we speak when we ought to be silent.
+
+_Saadi_
+
+### II. When You are Angry, Be Silent
+
+#### 1
+
+If you know how people should live and mean well with them, you will tell them. And you will do so in such a manner that they trust your words. In order that they may trust you and understand you, you must express your thoughts without irritation or anger, but calmly and kindly.
+
+#### 2
+
+If you would convey some truth to your listener, the main thing is not to be irritated and not to use an un kind or an offensive word.
+
+_Epictetus_
+
+#### 3
+
+The unspoken word is golden.
+
+#### 4
+
+Not to think first before speaking is advisable only when you feel yourself to be calm, kindly and loving. But if you are restless and irritated, take care that you do not sin in word.
+
+#### 5
+
+If you can not instantly still your wrath, restrain your tongue. Be silent, and you will regain your calmness.
+
+_Baxter_
+
+#### 6
+
+Take care that in a discussion your words be gentle, your arguments firm. Endeavor not to irritate your ad versary, but to convince him.
+
+_Wilkins_
+
+#### 7
+
+As soon as we feel anger in an argument, we are arguing not for the sake of truth, but for our own sake.
+
+_Carlyle_
+
+### III. Do Not Quarrel
+
+#### 1
+
+The beginning of a quarrel is like water seeping through the dam, the moment it breaks through it cannot be restrained. And every quarrel is provoked and kept alive by words.
+
+_Talmud_
+
+#### 2
+
+Quarrel convinces nobody, it merely separates and exasperates. What a nail is to a hammer, even so the quarrel is to human opinions. Opinions that had been a lit tle shaky are driven firmly into a man's head after a quarrel, as nails are driven in down to their head by a hammer.
+
+_Juvenal_
+
+#### 3
+
+Truth is lost sight of in quarrels. He who is wiser stops the quarrel.
+
+#### 4
+
+You may listen to quarrels, but do not participate therein. May the Lord preserve you from quick temper and hotheadedness even in their slightest manifestation. Anger is always out of place, and most of all in a righteous matter, because it obscures it and clouds it.
+
+_Gogol_
+
+#### 5
+
+The best answer to a madman is silence. Every word of retort will rebound from the madman upon your own head. To reply to insult with insult is like throwing fagots into a fire.
+
+### IV. Thou Shalt Not Judge
+
+#### 1
+
+"Judge not, that ye be not judged.
+
+"For with what judgment ye judge, ye shall be judged: and with what measure ye mete, it shall be measured to you again.
+
+"And why beholdest thou the mote that is in thy broth er's eye, but considerest not the beam that is in thine own eye?
+
+"Or how wilt thou say to thy brother, Let me pull out the mote out of thine eye; and behold, a beam is in thine own eye?
+
+"Thou hypocrite, first cast the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother's eye."
+
+_Matthew VII_, 1-5.
+
+#### 2
+
+Almost invariably, if we search within, we find the same sin that we condemn in others. And if we do not know in ourselves the very sin which we condemn in others, with a little search we shall find a worse sin.
+
+#### 3
+
+The moment you begin to judge a man, bear in mind not to say anything evil even if you know this evil thing for a certainty, but particularly if you are not certain of it and merely repeat the words of another.
+
+#### 4
+
+Judging others is always inaccurate, because no one knows what has occurred and is occurring in the soul of him who is being judged.
+
+#### 5
+
+It is well to agree with a friend to stop one another as soon as either commences to judge his neighbor. And if you have no such friend, make such an agreement with yourself.
+
+#### 6
+
+To condemn people to their face is evil because it offends them, and to condemn them behind their back is dishonest because it deceives them. The best thing is not to seek anything evil in people and to forget it, but to seek the evil in our own self and to remember it.
+
+#### 7
+
+A witty condemnation is offal disguised with a savory sauce. The sauce conceals the offal, and without noticing it you are apt to fill yourself with loathsome things.
+
+#### 8
+
+The less people know of the evil acts of others, the stricter they are with themselves.
+
+#### 9
+
+Never listen to a man who speaks evil of others and well of yourself.
+
+#### 10
+
+He who traduces me behind my back fears me, he who praises me to my own face despises me.
+
+_Chinese proverb_
+
+#### 11
+
+People are so fond of backbiting that it is hard to abstain from condemning those who are absent in the desire to please one's listeners. But if men must be pleased, try to set before them a different sort of a treat rather than something so harmful both to yourself and to those whom you would please.
+
+#### 12
+
+Cover up another's sin, and God will forgive two of yours.
+
+### V. Harmful Effects of Unrestraint in Words
+
+#### 1
+
+We know that a loaded gun must be handled care fully, but we refuse to realize that a word must be han dled with as much care. A word may not only kill but also cause evil that is worse than death.
+
+#### 2
+
+Offences of the body arouse our indignation; glut tony, fighting, adultery and murder, but we regard lightly the offences by words: censure, insult, gossip, the printing or writing of harmful and corrupting words; yet the con sequences of the offences with words are much graver and more far-reaching than the offences of the body. The dif ference is only this: the effects of an offence of the body are instantly noticeable. But the evil of word crimes we cannot observe because their effects are removed from us by distance and time.
+
+#### 3
+
+There was once a large gathering of over a thousand people in a theatre. In the midst of the performance a silly fellow bethought himself of a practical joke and shouted the one word: fire. The people rushed to the doors. A panic occurred, many were crushed, and when quiet was restored, twenty persons were found dead and more than fifty injured.
+
+Such is the evil that one foolish word may cause. Here in a theatre you could see an exhibition of the evil effects of one foolish word, but it frequently happens that the effects of a foolish word may not be as noticeable as in this theatre, but none the less cause still more evil, though gradually and unnoticed.
+
+#### 4
+
+Nothing so encourages idleness as small talk. If people only observed silence without resorting to the idle trifles with which they seek to banish the tediousness of idleness, they would find idleness intolerable and go to work.
+
+#### 5
+
+To speak evil of others harms three people in one: him of whom evil is spoken; him to whom evil is spoken; but most of all him who speaks evil of others.
+
+_Basil the Great_
+
+#### 6
+
+Judging people behind their back is harmful espe cially for the reason that the criticism of the defects of a man, which related to him face to face might be useful to him, is hidden from him to whom it might do good, and is communicated to those to whom it can only do harm by arousing a feeling of ill will towards him who is judged.
+
+#### 7
+
+You will seldom regret to have kept silence, but how often do you not regret to have spoken, and how much oftener would you regret if you but knew all the conse quences of your words.
+
+#### 8
+
+The more anxious you are to speak, the greater the risk that you will say something evil.
+
+#### 9
+
+Great is the strength of the man who preserves silence though he be right.
+
+_Cato_
+
+### VI. The Value of Silence
+
+#### 1
+
+Give more rest to your tongue than to your hands.
+
+#### 2
+
+Silence is often the best of answers.
+
+#### 3
+
+Turn your tongue seven times before saying a word.
+
+#### 4
+
+One must either be silent or utter words that are better than silence.
+
+#### 5
+
+He who says much does little. The wise man is always afraid lest his words promise more than he can per form, and therefore he remains silent more often, and speaks only then when it is needful for others and not for himself.
+
+#### 6
+
+I have passed my life among wise men and I have never found anything better for man than silence.
+
+_Talmud_
+
+#### 7
+
+If out of a hundred occasions you once regret that you failed to speak what you ought to have spoken, surely out of a hundred occasions you will find ninety-nine to re gret that you spoke when you should have remained silent.
+
+#### 8
+
+The fact alone that a good intention has been ex pressed in words weakens the desire to carry it into effect. But how to restrain from expressing the lofty though self satisfied enthusiasms of youth? Only in later years, re membering them, you regret them as you regret a flower that you plucked before its time and later found in the mire — faded and trodden under foot.
+
+#### 9
+
+The word is the key to the heart. If conversation leads to nothing, even one word is superfluous.
+
+#### 10
+
+When you are alone think of your sins, when you are in company, forget the sins of the others.
+
+_Chinese proverb_
+
+#### 11
+
+If you very much desire to speak, ask yourself: why are you so anxious to speak? is it for your own gain, or for the gain, for the good of others? If for your own, try and keep silence.
+
+#### 12
+
+It is best for the foolish man to be silent, but if he knew this, he would not be foolish.
+
+_Saadi_
+
+#### 13
+
+People learn how to speak, but the principal science is how and when to keep silent.
+
+#### 14
+
+When you speak, your words should be better than silence.
+
+_Arabic proverb_
+
+#### 15
+
+The man of many words cannot avoid sin. If a word be worth a coin, silence is worth two.
+
+If silence is meet for the wise, how much more so for the foolish.
+
+_Talmud_
+
+### VII. The Value of Restraint in Words
+
+#### 1
+
+The less you say, the more work will you accom plish.
+
+#### 2
+
+Wean yourself from judging others, and you will feel in your soul an increased capacity for love, you will realize a growth in life and blessedness.
+
+#### 3
+
+Mohammed and AH met once a man who thinking that Ali had injured him commenced to abuse him. For a time Ali bore this abuse patiently and in silence, but finally he could not restrain himself and gave abuse for abuse. Then Mohammed left them. When Ali rejoined Mohammed, he reproached him: "Why did you leave me alone to bear the insults of this insolent fellow?" "When this man abused you," replied Mohammed, "and you bore it in silence I saw ten angels around you and the angels reproved him. But when you began to pay him back in abuse, the angels left you, and I also walked away."
+
+_Mohammedan tradition_
+
+#### 4
+
+To conceal the defect? of others and to mention that which is good in them, is a sign of love and the best means to draw to yourself the love of your neighbor.
+
+_Pious Thoughts_
+
+#### 5
+
+The blessedness of the life of people is their love one for another. And an unkind word may violate love.
+
+## Thought
+
+Even as a man can restrain himself from committing an act, if he realizes that it is evil, so can a man restrain himself from a thought which attracts him if he acknowledges it to be evil. This restraint in thought is the chief source of the strength of man, because all acts have their inception in thoughts.
+
+### I. The Purpose of Thought
+
+#### 1
+
+You can not deliver yourself from sins, errors and superstitions by a physical effort. Deliverence is possible only through an effort of thought. Only by thought can you teach yourself to be unselfish, humble and truthful. Only when a man strives in his thoughts after self-abnegation, humility and truthfulness, will he have strength to fight with sin, errors and superstitions in his deeds.
+
+#### 2
+
+Though thought did not reveal to us the necessity of love — thought could not reveal this — thought plays an important part in pointing out that which obstructs love. This very effort of thought against that which obstructs love, this very effort of thought, I repeat, is more significant, needful and precious than all other things.
+
+#### 3
+
+If man did not think, he could not comprehend why he lives. And if he did not comprehend why he lives, he could not know what is good and what is evil. Therefore nothing is more precious to man than right thinking.
+
+#### 4
+
+People speak of moral and religious teaching and of science as though they were two distinct guides of man. In reality, however, there is only one guide — conscience, that is the consciousness of the voice of God who dwells in us. This voice decides beyond doubt for each man what he ought and what he ought not to do. And this voice may be summoned at all times from within by any man through an effort of thought.
+
+#### 5
+
+If a man did not know that he could see with his eyes and for that reason refrained from opening them, he would be very pitiable indeed. Even so, nay even more is to be pitied he who does not realize that the power to think was granted him for the purpose of calmly bearing all mis fortunes. If a man is sensible, he can easily bear misfor tunes; first because his reason tells him that all misfortunes pass away and frequently are transformed into blessings, and second because with a rational man all misfortunes redound to his benefit. Yet people instead of facing mis fortunes boldly endeavor to avert them.
+
+Is it not better to rejoice that God has given us power not to grieve over what occurs independent of our will, and to thank him that he has put our soul under subjection only to that which is in our own power, namely to our rea son. For he did not put our soul under subjection to our parents, nor to our brothers, nor to wealth, nor to our body, nor to death. In His mercy he put it under subjection only to that which depends on us — to our thoughts.
+
+And we must observe these thoughts and their purity with all our strength.
+
+_Epictetus_
+
+#### 6
+
+When we recognize a new thought and find that it is true, it seems to us as though we had known.it for a long time and merely remember what we already knew. All truth is already implanted in the soul of every man. Only do not choke it with falsehood, and sooner or later it will reveal itself to you.
+
+#### 7
+
+It may frequently happen that a thought visits you which seems both true and strange and you dare not trust it. But after a while, having carefully thought over the matter, you will see that the thought which had seemed passing strange is the simplest kind of truth, so that the moment you recognize you can never cease believing it.
+
+#### 8
+
+All great truths before passing into the conscious ness of man must inevitably go through three phases; the first: "This is so absurd, it is not worth considering"; sec ond: "This is against all morals and religion"; third: "This is so obvious it is not worth talking about."
+
+#### 9
+
+When you live together with others do not forget the things which you have learned in solitude. And in solitude consider those things which you learned from com panionship with others.
+
+#### 10
+
+We can attain wisdom by three ways: first, by way of experience, this is the most difficult way; second, by way of imitation, this is the easiest way; and third by way of meditation, and this is the noblest way.
+
+_Confucius_
+
+### II. The Life of Man is Determined by His Thoughts
+
+#### 1
+
+The fate of man, whatever it be, depends solely upon his manner of understanding his life through his thoughts.
+
+#### 2
+
+All great changes in the life of the individual and of the human race have their inception and completion in thought. A change of feelings and actions requires first of all a preceding change of thought.
+
+#### 3
+
+In order to transform an evil life into a good life, it is needful first of all to try and understand why the life became so evil, and what must be done in order to make it good. Therefore in order to make life better, it is neces sary first to think and then to act.
+
+#### 4
+
+It would be well if wisdom could be poured Out of one man who has much into another who has little, even as water is poured from one vessel into another until there is an equal quantity in both. But in order to be able to receive wisdom from another a man must first think for himself.
+
+#### 5
+
+All that is truly needful to man must be obtained with laborious and constant toil. Thus do we acquire crafts and all sorts of knowledge, and even thus is acquired that which is the most needful thing in life, the art of living a good life.
+
+In order to learn how to live right, you must first teach yourself how to think right.
+
+#### 6
+
+The transition of our life from one stage to another is determined not by visible acts which we commit by our will: marriage, removal to another place of residence, change of profession, but by the thoughts which come to us as we walk, or in the dead of night, or as we eat, particularly by such thoughts as embrace the whole of our past, saying: "You acted wrongly, you ought to have acted differently." And all of our following acts, like slaves, serve these thoughts and obey their will.
+
+_Thoreau_
+
+#### 7
+
+Our habits of thought lend their peculiar hue to all things with which we come in contact. If these thoughts are false they will render false the most exalted truths. Our habits of thought form something far more substantial for us than the house we dwell in. We carry them about with us even as the snail carries the shell in which it lives.
+
+_Lucy Mallory_
+
+#### 8
+
+Our desires will not become good until we correct our habits of thought. Habits of thought determine desires. And habits of thought are formed by communing with the results of the wisdom of the best men of the world.
+
+_Seneca_
+
+#### 9
+
+That which is at rest may be kept at rest. That which has not yet appeared may be easily prevented. That which is yet weak may be easily broken. That which is yet little may be easily scattered.
+
+The big tree started as a small twig. The nine-storied tower commenced with the laying of single bricks. Jour neys of thousands of miles commence with the first step. Take care of your thoughts — they are the origin of acts.
+
+_Lao-Tse_
+
+#### 10
+
+Our thoughts, good or evil, send us to paradise or to hell — not in the heavens or under ground, but right here in this life.
+
+_Lucy Mallory_
+
+#### 11
+
+Some say that reason can not be the guide of our life, but they are people whose reason is so corrupt that they can not trust it.
+
+#### 12
+
+Even as the life and the fate of an individual are determined by that to which he pays less heed than to his acts, namely by his thoughts, so the life of communities and nations is not determined by the events occurring among them, but by the thoughts which unite the majority of the people in these communities and nations.
+
+#### 13
+
+Do not think that to be wise is the prerogative of some special people only. Wisdom is needful to all men, and therefore all men can be wise. Wisdom is to know wherein is the business of life and how to perform it. And in order to know this only one thing is needful: remember that thought is a great thing, and therefore think.
+
+#### 14
+
+A thought entered my mind and then I forgot it. Well, never mind, it was only a thought. If it had been money I should have turned everything upside down until I found it. But a mere thought! Yet gigantic oaks grow from acorns. Thought determines this or that act of an individual and of millions of men, and yet we dare to think that mere thought is a trifle.
+
+### III. The Chief Source of Human Ills is Not in Men's Acts But in Their Thoughts
+
+#### 1
+
+When misfortunes befall you know that they are not due to what you have done, but to what you have thought.
+
+#### 2
+
+If we cannot restrain ourselves from committing a deed which we know is evil, it is due to the fact only that we first permitted ourselves to think of this evil act and failed to restrain our thoughts.
+
+#### 3
+
+Strive not to think of the things which you believe to be evil.
+
+#### 4
+
+More injurious than evil acts are those thoughts which lead to evil acts. An evil act need not be repeated and it can be repented. But evil thoughts give birth to evil deeds. An evil act points the path to other evil acts. Evil thoughts drag you along upon the path to evil deeds.
+
+#### 5
+
+Fruit is born of a seed. Even so deeds are born of thoughts.
+
+Even as evil fruit is born of evil seed, so evil acts are born of evil thoughts. As a farmer separates good and true seed from the seed of weeds, and selects from among the good seed the choicest and guards and sorts it; even so a prudent man treats his thoughts: he repels vain and fool ish thoughts, and preserves the good thoughts, cherishing and assorting them. If you do not repel evil thoughts, nor cherish good thoughts, you can not avoid evil acts. Good deeds come from good thoughts only. Cherish good thoughts, searching for them in the books of wisdom, in sensible conversations and above all in your inner self.
+
+#### 6
+
+So that a lamp may give steady light it must be placed where it is protected from the wind. But if a lamp be in a windy place, the light will flicker and cast strange and dark shadows. Even so uncontrolled, foolish and ill assorted thoughts cast strange and dark shadows upon the soul of man. Brahminic wisdom.
+
+### IV. Man Has Power Over His Thoughts
+
+#### 1
+
+Our life is good or evil depending on our thoughts. But we can direct our thoughts. Therefore in order to live a good life man must labor over his thoughts, nor yield to evil thoughts.
+
+#### 2
+
+Take care to purify your thoughts. If you have no evil thoughts you will commit no evil deeds.
+
+_Confucius_
+
+#### 3
+
+Guard your thoughts, guard your words, guard your actions from evil. Observe these three paths in purity, and you will enter the path designed by the All-Wise one.
+
+_Buddhist wisdom_
+
+#### 4
+
+All things are in the power of Heaven excepting our desire to serve God or self. We can not hinder the birds from flying over our head, but we can prevent them from building a nest on our head. Even so we can not stop evil thoughts from flashing through our mind, but it is within our power to prevent them from nesting therein and raising a brood of evil acts.
+
+_Luther_
+
+#### 5
+
+We can not repel an evil thought once it enters our mind, but we can recognize the thought as evil. And if we know that it is evil, we can refuse to yield to it. The thought comes to us that this or that man is bad. I could not prevent this thought, but if I realize that it is evil, I can re member that it is wrong to judge people and that I am bad myself, and remembering all this I can restrain myself from judging even in thought.
+
+#### 6
+
+If you would have benefit from your thoughts try to think entirely independently of your feelings and your condition, without twisting your thoughts into justifying the feelings which you experience or the acts which you commit.
+
+### V. Live the Life of the Spirit in Order to Have Strength to Rule Your Thoughts
+
+#### 1
+
+We frequently think that physical strength is the most important thing. We think so because our body willy nilly always appreciates physical strength. But spiritual strength, the power of thought, appears so insignificant that we refuse to acknowledge it as strength. And yet true power capable of changing our life and the life of all men is in the strength of the spirit alone.
+
+#### 2
+
+The spiritual directs the physical, not the physical the spiritual. Therefore, in order to change his condition, man must labor on himself in the domain of the spiritual — in the domain of thought.
+
+#### 3
+
+Our life improves or deteriorates in accordance with our consciousness of ourselves as spiritual or material crea tures. If we are conscious of being a material creature we weaken our true life, we strengthen and arouse passions, greed, conflicts, hatred and fear of death. If we are con scious of being spiritual beings we stimulate and elevate life, deliver it from passions, conflicts and hatred, we re lease love. And the passage from the consciousness of be ing a material creature into that of a spiritual being is effected by an effort of thought.
+
+#### 4
+
+This is what Seneca wrote to a friend:
+
+"You do well, friend Lucinius, to endeavor with all your strength to maintain yourself in a good and kindly spirit. Every man can at all times attain the same disposi tion. In order to attain it, it is not necessary to lift up your hands to heaven and to beg the temple watchman to let you come closer to God, so that He may hear you better: God is always close to you, He is within your own self. The Holy Spirit dwells in us, witness and guardian of what is good and what is evil. He acts towards us as we act to wards him. If we guard him — he guards us also."
+
+#### 5
+
+When you are in doubt, when you do not know which is good and which is evil, you must withdraw from the world; only worry about the judgment of the world pre vents you from seeing what is good and what is evil. With draw from the world, in other words, enter within your self, and all doubt will vanish.
+
+### VI. The Opportunity of Communing in Thought with the Living and the Dead is One of the Choicest Blessings of Man
+
+#### 1
+
+Young people frequently say: "I do not wish to live as others think — I must think out things for myself." This is quite right. Your own thoughts are more valuable to you than anybody else's. But why give thought to that which has already been thought out? Take that which is ready and go further. In being able to benefit by the thoughts of others lies the strength of the human race.
+
+#### 2
+
+The efforts which deliver man from sins, errors, and superstitions have their inception in thoughts. One of the principal aids of man in this struggle is his ability to commune with the reasoning activity of the sages and saints who have gone before. Such communion with the thoughts of the saints and sages of old is prayer, that is, repetition of those words wherein these men expressed their relation to their soul, to other people, to the world and to its beginning.
+
+#### 3
+
+It has been accepted since of old that prayer is necessary to man.
+
+With men of olden days, and still with the majority of men to-day, prayer is an appeal under certain conditions, in certain locations, accompanied by certain acts and words, addressed to God or to other divinities, and intended to ap pease them.
+
+Christian doctrine knows no such prayers. It teaches that prayer is needful not as an instrument of deliverance from worldly ills, nor as a means of securing worldly bless ings, but as a means of strengthening man in good thoughts.
+
+#### 4
+
+True prayer is important and needful for the soul because in such prayer, being alone with God, our thought reaches the highest pinnacle attainable to it.
+
+#### 5
+
+Christ said: When thou prayest, pray in secret (Matthew VI, 5-6). Only then will God hear you, God who is within you, and in order that He may hear you, you must only dispel all that conceals Him from you.
+
+#### 6
+
+Despondence is that state of the soul in which a man fails to see any purpose either in his own life or in the life of the whole world. There is only one way to be rid of this condition: to summon from within yourself the best thoughts that you are conscious of, either your own thoughts or the thoughts of others, and this process may illuminate to you the meaning of your own life. The summoning of these thoughts may be effected by the repetition of those supreme truths that you know and that you can express to yourself — and this is prayer.
+
+#### 7
+
+Pray unceasingly. The most needful and the most difficult of prayers is to remember amid the activities of life your duties before God and His law. Have you been fright ened, angered, confused, tempted — make an effort, remem ber who you are and what you ought to do. Herein is prayer. This is difficult at first, but the habit may be de veloped.
+
+#### 8
+
+From time to time it is well to modify your prayer, that is the expression of your relation to God. Man changes constantly, grows constantly, and therefore his re lation to God must change and become more manifest. And even so must his prayer be modified.
+
+### VII. Good Life is Impossible Without Effort of Thought
+
+#### 1
+
+Appreciate good thoughts, your own and those of others, as soon as you recognize them. Nothing will aid you as much as good thoughts in the accomplishment of the true task of your life.
+
+#### 2
+
+Be master of your thoughts if you would attain your purpose. Fix the glance of your soul upon that one pure light which is free from passions.
+
+_Brahminic wisdom_
+
+#### 3
+
+Meditation is the path to immorality; frivolity is the path to death. Those who are watchful in meditation never die, but the frivolous and unbelievers are even as the dead.
+
+Arouse thyself, then protected by thyself and penetrat ing into thyself, thou wilt be immutable.
+
+_Buddhist wisdom_
+
+#### 4
+
+The true strength of man is not in impulse, but in the uninterrupted steady striving after good which he determines in his thoughts, expresses in his words and re alizes in his actions.
+
+#### 5
+
+If looking back over your life you observe that your life has grown better and freer from sins, errors and superstitions, know that you owe this success only to the labor of your thoughts.
+
+#### 6
+
+Thought activity is precious not only because it corrects our life, but also because it is helpful in the life of other people as well. This is what makes the effort of thought so valuable.
+
+#### 7
+
+This is what the Chinese philosopher Confucius says about the significance of thought:
+
+True learning teaches men the highest good — to be re formed and to abide in that state. In order to attain su preme good it is necessary that wellbeing reign throughout the nation. In order to have wellbeing throughout the na tion it is necessary to have wellbeing in the family. In or der to have wellbeing in the family it is necessary to have wellbeing within oneself. In order to attain wellbeing within oneself the heart must be corrected. In order to have your heart corrected you must have clear and truthful thoughts.
+
+### VIII. Man is Distinguished from an Animal Only by Having the Capacity of Thinking
+
+#### 1
+
+Man is distinguished from an animal only by his capacity of thinking. Some people increase this capacity in themselves, others pay no heed to it. These latter people act as though they would surrender that which distinguishes them from the beast.
+
+_Eastern wisdom_
+
+#### 2
+
+A cow, a horse, or any other animal, no matter how hungry it may be, will never leave the court if the gates open inwards. It will starve to death if the gate be stout and there be none to open it, for it will never think of walk ing away from the gate pulling it along. Man alone under stands that he must suffer awhile, labor, and do those things which he may not desire at the moment, in order to bring about a desired result. Man may restrain himself from eat ing, sleeping or drinking, because he knows what is good and what he ought to do or what is evil and what he ought not to do. Man learns these things through his capacity of thinking.
+
+This capacity is the most valuable possession of man and he should guard it and cultivate it with all his strength.
+
+#### 3
+
+Compared with the world surrounding him, man is but a feeble reed, but a reed endowed with the capacity of thinking.
+
+The merest trifle suffices to kill a man. And yet man is higher than any other creature, higher than anything earthly, because even when dying he is conscious of the fact that he is dying.
+
+Man may be conscious of his insignificance before na ture, but nature itself is not conscious of anything.
+
+Our whole advantage is in the capacity of thinking. Our thought elevates us above the rest of the world. Let us prize and sustain our power of thought and it will illumine our whole life, showing us wherein is good and wherein is evil.
+
+_Pascal_
+
+#### 4
+
+A man may learn to read and write, but this knowl edge will not enlighten him whether he should write a let ter to a friend or a complaint against someone who has in jured him or leave it alone. A man may learn to use musical instruments, but music will not tell him when he should sing or play and when he should leave singing and playing alone. Eve so in all things. Only reason suggests to us what to do, when to do it, or what not to do and when. Having endowed us with reason, God put at our dis posal that which is most needful. Giving us reason it is as though He said: In order that you may avoid evil and lay hold on the blessings of life, I have implanted within you a divine particle of Myself. I have given you reason. If you apply it to all that happens to you, nothing in the world will be an obstacle or impediment to you on the road which I have designed for you, and you will never complain of your fate or against people, you will never judge them or cringe before them. Do not reproach me for not having given you more. Is it not enough for you to be able to live your life reasonably, peacefully and happily?
+
+_Epictetus_
+
+#### 5
+
+A wise proverb says that God visits us without ringing the bell. This means that there is no partition be tween us and the infinite, that there is no wall between man — the effect, and God, the cause. The walls have been re moved, we are open to all the profound effects of divine characteristics. Only the labor of thought keeps open the hole through which we commune with God.
+
+_Emerson_
+
+#### 6
+
+Man is created that he may think; therein is his entire merit and worth. The duty of man is only in think ing right. The proper order of thinking is to commence with self, with the Creator and one's purpose in life. But what do the people of the world think about instead? Not at all of these things, but merely of having a good time — of be coming rich, of glory, of gaining a throne, without thinking what it means to be a king and what it means to be a man.
+
+_Pascal_
+
+## Self-Renunciation
+
+The happiness of a man's life is in communion with God and with his fellow-beings through love. Sins prevent this communion. The cause of sins is in that the man seeks to build his happiness upon the gratification of the passions of his body and not the love of God and of his fellow man. Therefore the happiness of man lies in the deliver ance from sins. The deliverance from sins is in the effort to renounce the life of the flesh.
+
+### I. The Law of Life Is In the Renunciation of the Flesh
+
+#### 1
+
+All the sins of the body: adultery, luxury, sloth, covetousness and malice, are due to the acknowledgment of the body as one's real "I," that is, due to the subjection of the soul to the body. The deliverance from sins is only in the acknowledgment of the soul as one's "I," in the subjection of the body to the soul.
+
+#### 2
+
+"Then said Jesus unto his disciples, if any man will come after me, let him deny himself, and take up his cross and follow me.
+
+"For whosoever will save his life shall lose it; and whosoever will lose his life for my sake shall find it.
+
+"For what is a man profited, if he shall gain the whole world and lose his own soul? or what shall a man give in exchange for his soul?"
+
+_Matthew XVI_, 24-26.
+
+#### 3
+
+"Therefore doth my Father love me, because I lay down my life, that I might take it again.
+
+"No man taketh it from me, but I lay it down of my self. I have power to lay it down, and I have power to take it up again. This commandment have I received of my Father." _John X_, 17-18.
+
+The mere fact that a man can renounce the life of his body clearly shows that there is something in man for the sake of which he renounces.
+
+#### 5
+
+The more you yield to that which is of the body, the more you lose of the spiritual.
+
+The more you surrender of the things that are of the body, the more you will gain of the things that are of the spirit. Judge which of the two is more needful to you.
+
+#### 6
+
+Self-renunciation is not the renunciation of self, but the removal of your "I" from the animal being into the spiritual. To renounce self is not to renounce life. On the contrary, to renounce carnal life is to increase your true spiritual life.
+
+#### 7
+
+Reason demonstrates to man that the gratification of the demands of his body can not be his true happiness, therefore reason irresistibly draws man to that happiness which is his prerogative, but for which there is no room in his bodily life.
+
+It is commonly said and believed that renunciation of physical life is a heroic act: this is untrue. The renuncia tion of the physical life is not a heroic deed, but an inevit able condition of human life. In the case of the animal the wellbeing of the physical life and the continuity of species resulting therefrom is the supreme purpose of life. But with man the life of the body and the continuity of species are only a phase of existence in which the true blessedness of his life is revealed to him, and this does not coincide with his bodily wellbeing. For man the life of the body is not all of life, but merely a necessary prerequisite of the true life which consists in the ever-increasing union with the spiritual principle of the world.
+
+### II. The Inevitableness of Death Necessarily Leads Man to the Consciousness of Spiritual Life Which is Not Subject to Death
+
+#### 1
+
+When an infant is born it seems to him that he is the only thing in the world. He yields to no one, to noth ing, he does not care to know anyone: only give him that which he craves. He even does not know his mother, but knows her breast only. Days, months and years pass, and the child begins to understand that there are other beings like him, and what he craves for himself, others crave for themselves also. And the longer he lives, the more he re alizes that he is not alone in the world, and that he must — if he be strong — fight with others for that which he craves, or if he be weak, he must submit to that which is. And moreover the longer a man lives, the more he realizes that his life is but for a season and may terminate at any mo ment in death. He observes death seizing now this one, now that one before his very eyes and knows that any mo ment the same may happen to him, as sooner or later it most surely will. And he can not escape the realization that there is no true life in his body, and whatever he may do for his body in this life, it is to no purpose.
+
+And when man has clearly realized this, he will also realize that the spirit which dwells in him does not dwell in him alone, but dwells in all, in the whole world, and that this spirit is the spirit of God. And having realized this, man will cease to ascribe any significance to his bodily life, but will divert his purpose to the attainment of a union with the spirit of God, with that which is eternal.
+
+#### 2
+
+Death, death, death waits for you every instant. Your life is passing in the sight of death. If you labor for the future of your bodily life, you know in your own heart that the future has only one thing in store for you: death. And this death destroys all that you labor for. You may say that you labor for the good of generations to come, but they also will vanish and no trace will remain of them. Therefore life for the sake of material things has no sense. Death destroys all life of this kind. In order that your life may have a meaning, you must live so that death could not destroy the work of your life. Such is the life that Christ reveals to men. He reveals to men that alongside of that bodily life which is a mere shadow of life there is also an other, a true life which gives true blessedness to man, and that every man knows this life in his heart. The teaching of Christ is the teaching of the unreality of personal life, of the necessity of renouncing it and of transferring the meaning and the purpose of life into divine life, the life of humanity as a whole, the life of the Son of Man.
+
+#### 3
+
+In order to understand the teaching of Christ as to the salvation of life, it is necessary to understand clearly what Solomon, and Buddha, and all the wise men said of the personal life of man. It is possible, as Pascal says, to ignore all these things, to carry with us little screens that would hide from our eyes the abyss of death towards which we are rushing; but it suffices to think for a moment what is the bodily life of an individual man, in order to realize that this life, if it be the life of the body merely, has no sense, that it be a cruel mockery of the heart, of the reason of man and of all that is good within him. And therefore in order to understand the teaching of Christ it is neces sary first of all to bethink yourself and to take heed, it is necessary to experience that in your inner self which Christ's precursor John preached to men who were beset with perplexities even as we. He said: "First of all re pent, then come to your senses or you will all perish." And Christ commencing his sermon said the same: "Take heed, or you will perish." Speaking of the Galileans whom Pilate had slain, Christ said: "Did you think that these Gali leans were more sinful than any other Galileans that they suffered so much? No, I say unto you, but if you do not repent, you will all likewise perish." Death, the inevitable, is before us all. We strive in vain to forget about it, but this will not save us; on the contrary, when it comes unex pectedly it will be all the more dreadful. There is but one salvation: renounce the life which dieth, and live the life for which there is no death.
+
+#### 4
+
+It suffices to renounce for a moment our customary life and to look at it from the outside, as it were, in order to see that all the things we undertake for the supposed security of our life, we do not undertake to make our life more secure, but merely to busy our mind with this fictitious security and to forget that nothing can ever make our life secure. Not content with deceiving ourselves and imperil ing our true life for the sake of the imaginary life, this striving for security more often than not ruins the very things we would make secure. The rich man seeks the security of his life in money, and this money tempts a robber to slay him. The nervous man tries to secure his life with medicines, and these medicines slowly kill him, or if they do not kill him, they surely deprive him of true life. It is the same with nations which arm themselves to secure their life and liberty, and yet this same striving for security leads to wars and to the destruction of hundreds of thousands of men on battlefields, and to the loss of the liberty of the nations as well.
+
+The teaching of Christ that you can not make this life secure but must be ready to die at any moment gives more happiness than the teaching of the world that life must be made secure, if for no other reason at least because the inevitableness of death and the insecurity of life remain the same whether you follow the teachings of the world or the teaching of Christ; in the latter case, however, our life is not wholly swallowed up by the idle labor for the attain ment of a false security, but is liberated and may be devoted to the one purpose proper to it: the perfecting of our soul and the increase of love to others.
+
+#### 5
+
+He who in his dying body does not see himself, has comprehended the truth of life.
+
+_Buddhist wisdom_
+
+#### 6
+
+Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment?
+
+Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father f eedeth them. Are ye not much better than they?
+
+Which of you by taking thought can add one cubit unto his stature?
+
+Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?
+
+But seek ye first the kingdom of God, and his right eousness; and all these things shall be added unto you.
+
+Take therefore no thought for the morrow: for the morrow shall take thought for the things of itself. Suffi cient unto the day is the evil thereof.
+
+_Matthew VI,_ 25-27, 31, 33, 34.
+
+### III. The Renunciation of the Animal "I" Reveals God in the Soul of Man
+
+#### 1
+
+The more man renounces his bodily "I," the more God reveals himself in him. The body hides the God in man.
+
+#### 2
+
+Would you attain the consciousness of the all-em bracing "I," then you must first know yourself. In order to know yourself you must sacrifice your "I" to the uni versal "I."
+
+_Brahminic wisdom_
+
+#### 3
+
+He who renounces his personality is powerful, for his personality has been concealing God within him. As soon as he has thrown off his personality, it is God who acts in him and no longer his own personality.
+
+#### 4
+
+If you despise the world, there is small merit therein. To him who lives in God, both his own self and the world will be always as nought. Angelus.
+
+#### 5
+
+The renunciation of the bodily life is valuable, nec essary and blessed only if it is a religious renunciation, that is if man renounces self, his body, in order to do the will of God who dwells in him. But when man renounces his bodily life not to do the will of God, but to do his own will or the will of men like himself, such renunciation is neither valuable nor useful nor blessed, but on the contrary harm ful to himself and to others.
+
+#### 6
+
+If you seek to please others so that they may be grateful to you, your endeavors will be in vain. But if you do good to people without thinking of them, but for God, you will not only do good to yourself, but people will also be grateful to you.
+
+He who forgets himself is remembered of God, he who is mindful of himself is forgotten of God.
+
+#### 7
+
+Only when we die to self in our body are we resur rected in God.
+
+#### 8
+
+If you expect nothing nor seek to receive anything from other people, people will not terrify you, any more than one bee terrifies another or one horse terrifies an other. But if your happiness is in the power of other peo ple you will always fear people.
+
+We must begin with this: renounce all that does not belong to us, renounce it to such degree that it has no mas tery over us, renounce all that the body needs, renounce love of wealth, of glory, of positions, of honors, renounce wife, children, brothers. We must say to ourselves that none of these things belong to us.
+
+But how to attain this? Subject your will to that of God: does he will that I have a fever? I will so likewise. Does He will that I do this instead of that? I will so like wise. Does He will that something happen to me which I do not expect? I will so likewise.
+
+_Epictetus_
+
+#### 9
+
+Our own will never satisfies, though all of its de mands may be met But the moment we renounce it, we feel complete contentment. Living for our own will, we are always discontented; renouncing it we are bound to be con tented. The only true virtue is hating ourselves, because every man deserves hatred for his passions. But hating self, man seeks a being worthy of love. Being, however, unable to love anything that is outside of us, we are bound to love that being which is within us, but is not our own self, and there can be only one such being — the universal Being. The Kingdom of God is within us; universal bless ing is within us, but we are not it.
+
+_Pascal_
+
+### IV. Renunciation of Self Alone Makes It Possible to Love Others
+
+#### 1
+
+Only that does not perish which does not live for self. But he who does not live for self, for what shall he live? Only when living for All can you live without living for self. Only living for All man can be and is at peace.
+
+_Lao-Tse_
+
+#### 2
+
+Even if you so desired, you cannot cut off your life from that of humanity. You live in it, by it, and for it. Living among people you can not escape self-renunciation, because we are created for reciprocity, even as the feet, the hands and the eyes, and reciprocity is impossible with out self-renunciation.
+
+_Marcus Aurelius_
+
+#### 3
+
+You cannot compel yourself to love others. You can only cast aside that which hinders love. And the love of your animal "I" hinders love.
+
+#### 4
+
+Love your neighbor as yourself does not mean that you should try to love your neighbor. You can not compel yourself to love. Love your neighbor means to cease lov ing yourself above all things. And the moment you cease loving yourself above all things you will involuntarily love your neighbor as yourself.
+
+#### 5
+
+In order to love others in deed and not in word, you must also cease loving yourself in deed and not in word. But it usually happens like this: we say that we love others, but love them in word only, yet we love ourselves not in word but in deed. We may forget to clothe, to feed or to shelter others, but we never forget ourselves. And there fore in order that we may love others in deed we must learn to forget to clothe, to feed and to shelter ourselves as we forget to do these things for others.
+
+#### 6
+
+We must train ourselves to say within our soul when meeting another person: I will think of this person only, and not of myself.
+
+#### 7
+
+It suffices to remember self in the midst of a speech, and you lose the thread of your thought. Only when we completely forget ourselves do we come out of ourselves, and only then is our association with others fruitful and we can serve them and exert a beneficial influence upon them.
+
+#### 8
+
+The richer a man is in external things, the better off he is in worldly life, the more difficult, the more remote from him is the joy of self-renunciation. Rich people are almost entirely deprived of it. But in the case of the poor man every time he interrupts his work to assist another, every crumb of bread he gives to a beggar is a joy of self renunciation.
+
+And if a rich man give two out of his three millions to his neighbor he cannot experience the joy of self-renunciation.
+
+#### 9
+
+There was once a destructive drouth on earth: all the rivers, brooks and wells dried up, trees, bushes and pas tures were dry, people and animals were dying of thirst.
+
+And one night a little girl came out of her hut, with a cup in her hand, seeking water for her ailing mother. The girl, failing to find water anywhere, lay down on the grass in the field and fell asleep. When she woke up and tried to pick up her cup she almost spilled it. It was filled with fresh and pure water. The little girl rejoiced and was about to drink when she remembered her mother, and fear ing that there might not be enough for her, she ran home with her cup of water. She hurried so that she failed to notice a little dog at her feet, and she stumbled and dropped her cup. The little dog moaned piteously. And the girl stooped to pick up the cup.
+
+She was afraid that she had spilt all the water out of it, but found the cup standing upright on its bottom and it was still full of water. The little girl poured some water into the palm of her hand and the dog licked it up and was happy. When the little girl finally lifted the cup it had turned into silver. The child took the cup home and gave it to her mother. But the mother said to her: "I must die anyway, drink it yourself." And in that instant the cup turned into gold. And the little girl, no longer able to re sist, was about to put her lips to the cup, when a pilgrim entered and begged for water. The child immediately offered the cup to the pilgrim. And suddenly there ap peared on it seven wondrous diamonds and a current of fresh and pure water issued out of it.
+
+But the seven diamonds rose higher and higher till they reached heaven and became a constellation of seven stars known as Ursa Major.
+
+#### 10
+
+That which you give to others is yours, that which you have withheld belongs to others.
+
+If you have given anything to another person depriving yourself, you have done good to yourself and this good is eternally yours, no one can rob you of it.
+
+But if you have kept that which another desires, you have withheld it for a season only, or until you will be com pelled to part with it. For you will surely have to part with it when death comes.
+
+#### 11
+
+Will the time never come when people will learn that it is as easy to live for others as they find it to die for others while participating in wars the cause of which may be unknown to them? Only the elevation and the illumination of the spirit in man will bring this about.
+
+_Brown_
+
+### V. He Who Employs All His Strength in the Gratification of His Animal Desires Exclusively Destroys His True Life
+
+#### 1
+
+If a man thinks of himself alone and seeks his own gain in everything he cannot be happy. If you would truly live for yourself live for others.
+
+_Seneca_
+
+#### 2
+
+In order to understand how needful it is to re nounce the life of the flesh for the life of the spirit it suffices only to picture to oneself how repulsive would be the life of man if it were given up completely to his animal desires. The true life of man commences only with his re nunciation of animalism.
+
+#### 3
+
+In the parable of the vineyard Christ explains the error of men who accept the imaginary life — their own per sonal animal life — as the true life.
+
+Men living in a master's vineyard conceived the idea that they owned it. As the result of this error they were led to commit a series of mad and cruel acts leading to their expulsion and exclusion from life. Even so have we con ceived the idea that the life of each one of us is our per sonal property, that we have a right to it, that we may use it as we see fit, and that we have no obligations to anyone. And the same series of mad and cruel acts and misfortunes, followed by exclusion from life, for a certainty awaits us who have conceived such errors. Just as the dwellers in the vineyard either forgot or refused to realize that the vineyard had been turned over to them planted, fenced in and provided with a well, in other words, that someone had labored in it before them, and therefore expected that they also should labor therein, even so men who live a personal life forget all that has been dpne for them before their coming into the world, and all that is being done for them while they live, which shows that something is expected of them.
+
+According to the teaching of Christ just as the work ers dwelling in the vineyard which was prepared for them by their master must realize their eternal indebtedness to their master, even so must men realize that from the day of their birth until their death they are irretrievably in debted to some who lived before them, who still are living and will live, as well as to that which was, is and ever will be the principle of all things. They must realize that every hour of their life confirms this obligation, so that he who lives for himself and denies this obligation which binds him to life and to the principle thereof, deprives himself of life.
+
+#### 4
+
+People imagine that self-renunciation is a violation of freedom. Such people do not know that self-renuncia tion gives us true freedom, liberating us from our own self and from servitude to our own corruption. Our passions are our most cruel tyrants: renounce them and you will realize freedom.
+
+_Fenelon_
+
+#### 5
+
+If a man realizes his calling but does not renounce his personality, he is like to a man who has the keys to inner apartments — but has no key to the outer door.
+
+#### 6
+
+The realization of one's calling which includes the law of self-abnegation has nothing in common with the enjoyment of life. If we cared to mix the consciousness of our calling with enjoyment and offered this mixture like a medicine to the ailing soul, the two principles would sep arate themselves of their own accord. But if they failed to do so, and the consciousness of the high calling of man exercised no effect, and the life of the body had from a striving after enjoyment acquired some strength supposedly proportionate to that calling, moral life would vanish be yond recall.
+
+_Kant_
+
+### VI. Deliverance from Sins is Possible Only Through Self-Renunciation
+
+#### 1
+
+Renouncing animal happiness for the sake of spir itual blessedness is a consequence of a change of conscious ness, that is the man who has previously considered himself an animal only, begins to recognize himself as a spiritual being. If this change of consciousness has been accom plished, that which previously was considered privation and suffering no longer appears as privation and suffering, but as a natural preference of that which is better to that which is worse.
+
+#### 2
+
+They are wrong who think and say that in order to fulfill the calling of life and to attain happiness we require health, comfort and outwardly favorable conditions in gen eral. This is untrue. Health, comfort and outwardly fa vorable conditions are not necessary for the fulfillment of our calling and for our happiness. We have the possibility of the happiness of spiritual life which nothing can violate, the happiness of increasing love within. But we must have faith in this spiritual life and concentrate all our efforts upon it.
+
+You may live the life of the body and labor in it, but the moment obstacles appear in this bodily life betake your self from the bodily life into the spiritual life. And spir itual life is always free. It is like the wings to a bird. A bird may walk on his feet, but no sooner is an obstacle or peril encountered than the bird having faith in his wings unfolds them and soars upward.
+
+#### 3
+
+There is nothing more important than inner labor in solitude with God. This inner labor consists in ceasing to seek the happiness of your animal personality, in remind ing yourself of the senselessness of bodily life. You can do this only when you are alone with God. When you are in the company of other people it is too late. When you are in the company of other people your actions will be good only if you have prepared in yourself the capacity of self-renunciation through solitary communion with God.
+
+#### 4
+
+Every man sooner or later will more or less clearly experience an inner contradiction: I would live for myself and I would live rationally, but to live for myself is irra tional. This seems to be contradictory, but is it? If it be so, then there is contradiction in the decaying seed which as it decays puts forth a sprout. It is a contradiction, only if I refuse to listen to the voice of reason. Reason shows the necessity of removing the consciousness of life from per sonal life into the germinating life of the spirit. It shows me the needlessness, the senselessness of personal life, and makes me a promise of new life, just as the seed grows by breaking through the cherry pit. A contradiction is only then to be seen when we seize the outward discarded form of life, refusing to part with it, as though the outward en velope of the seed after the seed had burst through insisted on asserting its life. That which appears to us a contradic tion is merely the pangs of being born into a new life. We need only cease resisting this inevitable superseding of the bodily life by the spiritual life and yield ourselves up to the spiritual life, and a new, a better, life — the true life — will reveal itself to us.
+
+#### 5
+
+The one true and joyful work of life is to attend to the growth of our soul, and self-abnegation is necessary for this growth. Learn self-abnegation in small things. Hav ing acquired the art of self-abnegation in small things, you will be able to deny yourself also in greater things.
+
+#### 6
+
+When the light of your spiritual life is being ex tinguished, the dark shadows of your bodily desires fall across your path — beware of these dreadful shadows: the light of your spirit can not dissipate their darkness until you expel the desires of the body from your soul.
+
+_Brahminic wisdom_
+
+#### 7
+
+The difficulty of delivering yourself from self-love is due mainly to the fact that self-love is a necessary condi tion of life. It is necessary and natural in infancy, but must grow weaker and disappear in accordance with the growth of reason.
+
+An infant 'feels no pangs of conscience because of self love, but in proportion to the increasing light of reason self love becomes a burden; as life advances self-love decreases and with the approach of death it disappears completely.
+
+#### 8
+
+To renounce self altogether is to become God; to live entirely for self is to become a beast. The life of man is an increasing movement away from the brutish life and approach to the divine life.
+
+#### 9
+
+I loathe my life, I feel that I am all in sins, no sooner I emerge out of one sin than I fall into another. How can I, though in a measure, correct my life? There is only one effective means: to realize that my life is in the spirit and not in the body and to refuse to participate in the evil deeds of bodily life. Only will so with all your soul and you will see how your life will commence to im prove. It was evil only because you served your bodily life with your spiritual life.
+
+#### 10
+
+Vainly will a man strive to deliver himself from sins if he does not renounce his body, if he does not cease placing the demands of his body above the demands of his soul.
+
+#### 11
+
+Without sacrifice there is no life. Whether you will it or not, life is altogether a sacrifice of the material to the spiritual.
+
+### VII. The Renunciation of the Animal Personality Gives Man a True and Inalienable Spiritual Blessedness
+
+#### 1
+
+There is but one law for the life of each individual and for the common life of all men: in order to make life better, you must be ready to yield it up.
+
+#### 2
+
+Man can not know the effects of his life of self renunciation. But let him try it though for a season, and I am convinced that every honest man will admit the bene ficial effect upon his soul and body even of those occasional moments when he forgets himself and denies his physical personality.
+
+_Ruskin_
+
+#### 3
+
+The more man renounces his animal "I" the freer is his life, the more valuable it is to others and the more joyful it is to himself.
+
+#### 4
+
+It is said in the New Testament that he who would lose his life shall find it. This means that true life is given only to him who renounces the good things of animal life.
+
+The true life of man commences only when the man seeks the good of the soul and not of the body.
+
+#### 5
+
+The life of man is like the cloud dropping in the form of rain upon meadows, fields, forests, gardens, brooks and rivers. The cloud pours itself out, refreshes and gives life to countless blades of grass, bushes, trees, and becomes luminous and transparent — and lo! it soon vanishes. Even so is the material life of a good man: he helps many, many people, he makes their lives easier, he sets their feet in the paths of righteousness, he comforts them, and now having spent himself he dies and journeys where dwelleth the Eternal, Invisible and Spiritual.
+
+#### 6
+
+Trees yield up their fruit and even their bark, their leaves and their juices to all who need them. Happy the man who does likewise. But few there be who know this and act accordingly.
+
+_Krishna_
+
+#### 7
+
+There can be no happiness while you think of self. But this can not be altogether avoided. If there remains the least care of self all is ruined. I know that this is hard, but I also know that there is no other means of attaining happiness.
+
+_Carpenter_
+
+#### 8
+
+Many imagine that if we eliminate personality and the love of it out of our life nothing will remain. They imagine that there is no life without personality. But this seems so only to people who have never experienced the joys of self-renunciation. Eliminate personality from life, renounce it and that will remain which forms the substance of life — love which yields positive happiness.
+
+#### 9
+
+The more man recognizes his spiritual "I," and the more he renounces his material personality, the more truly he understands himself.
+
+_Brahminic wisdom_
+
+#### 10
+
+The more a man removes his life from the animal existence into the spiritual plane, the more his life becomes free and joyous. But in order that man may be able to remove his life from the animal existence into spiritual plane he must recognize himself as a spiritual being. And in order that he may recognize himself as a spiritual being he must renounce material life. Faith requires self-renunciation, self-renunciation requires consciousness. One helps the other.
+
+#### 11
+
+From the point of view of happiness the problem of life is unsolvable, as our highest aims prevent us from being happy. From the point of view of duty there is also a difficulty, for duty fulfilled gives peace and not happiness. Only divine and holy love and fusion with God destroy these difficulties, because sacrifice then becomes a constant, increasing and inviolable joy.
+
+_Amiel_
+
+#### 12
+
+The idea of duty in all its purity is not only incomparably simpler, clearer and more intelligible to every man in practice and more natural than the impulse which has its beginning in happiness and is either connected with it or designed in relation to it (and which always demands a great deal of artificiality and delicate considerations), but is indeed more powerful, insistent and promising of success before the judgment of ordinary sound reason than all impulses proceeding from selfishness, if only the idea of duty is appropriated by sound sense entirely independently of selfish impulses.
+
+The realization that / can because / ought opens up in man a treasure house of divine gifts which cause him to feel as an inspired prophet the majesty and loftiness of his true calling. And if man only paid more heed to it and learned to separate virtue entirely from those gains which are the reward of duty fulfilled, if the constant exercise of virtue were made the chief object of private and public edu cation, the moral condition of men would speedily improve. If the experience of history has not yet yielded better re sults for the teaching of virtue, the fault lies in the errone ous idea that the impulse evolved from the recognition of duty is supposed to be feeble and remote, and that the soul is more strongly influenced by the more proximate impulse having as its source the calculation of gains which may be expected in part in this world, and in part in the world to come as the reward of the fulfillment of the law. Yet the recognition by a man of the spiritual principle within him, evoking the renunciation of his personality, moves man much more potently than any rewards to the fulfillment of the law of good.
+
+_Kant_
+
+## Humility
+
+The paramount blessing of man in this world is asso ciation with his kind. Proud people, setting themselves apart from others, deprive themselves of this blessing. But the humble man eliminates all inner obstacles to the attain ment of this blessing. And therefore humility is a neces sary prerequisite of true happiness.
+
+### I. A Man Can Not Be Proud of His Deeds Because All the Good that He Does is Not Done by Himself But by the Divine Principle Which Dwells in Him
+
+#### 1
+
+Only he can be humble who knows that God dwell eth in his soul. It is all the same to such a man how other people judge him.
+
+#### 2
+
+He who considers himself master of his own life can not be humble because he thinks he is under no obliga tion to any one for anything. But the man who sees his calling in the service of God can not be otherwise than humble because he always feels that he has fallen far short of fulfilling all his obligations.
+
+#### 3
+
+We frequently feel proud because we have done well, forgetting that God dwelleth in each of us, and that in doing well we are mere instruments by means of which He performs His works.
+
+God does through me what He wills, and I dare to feel proud! It is as though a rock impeding the course of a freshet boasted that it brings, forth water and that men and beasts drink thereof. But it may be said that the rock may feel proud because it is pure and does not spoil the water. This also is an error. If it is pure, it is because the water has cleansed it and still cleanseth it. We have nothing of our own, all is of God.
+
+#### 4
+
+We are the instruments of God. We know what we ought to do, but why it is not given to us to know. He who understands this can not be otherwise than humble.
+
+#### 5
+
+The principal concern in the life of every man is to become ever better. But how can we become better if we account ourselves good?
+
+#### 6
+
+Only then will the laborer perform his task well when he realizes his condition. Only when a man under stands the teaching of Christ will he clearly understand that his life is not his own, but God's, who gave it to him — and that the purpose of life is not in man but in the will of Him who gave him life, and therefore man can only hinder the manifestation of God within himself, but can not do any good of himself.
+
+#### 7
+
+You need only recognize yourself as servant instead of master, and immediately doubt, worry and discontent give way to certainty, peace and joy.
+
+### II. All Errors Come From Pride
+
+#### 1
+
+If a man strives after God he can never be satisfied with himself. No matter how far he may advance, he will still feel his remoteness from perfection, because perfection is infinite.
+
+#### 2
+
+Self-assurance is a characteristic of the animal, humility is a characteristic of man.
+
+#### 3
+
+He who knows himself best esteems himself least.
+
+#### 4
+
+He who is satisfied with himself is dissatisfied with others.
+
+He who is always dissatisfied with himself, is always satisfied with others.
+
+#### 5
+
+A wise man was told that some men condemned him as being wicked. He replied: "It is well that they do not know all about me, or they would consider me still worse."
+
+#### 6
+
+There is nothing more useful to the soul than to be mindful that you are an insignificant gnat both in time and in space, and that your strength lies in your ability to realize your insignificance and therefore to be humble.
+
+#### 7
+
+In spite of lack of attention to his defects, which is common to all men, there is not a man living who does not know more evil things of himself than he does of his neigh bors.
+
+Therefore it should be easy for any man to be humble.
+
+_Woheley_
+
+#### 8
+
+We need only give it a little thought and we shall always find ourselves guilty of something before humanity (let it be even the guilt arising from the existing inequality of people, whereby some enjoy certain advantages for the sake of which others must experience still greater priva tions), and this will keep us from accounting ourselves above other people on the strength of selfish delusions as to our merits.
+
+_Kant_
+
+#### 9
+
+Our defects may be seen only through the eyes of others.
+
+_Chinese proverb_
+
+#### 10
+
+Every man may be to us a mirror in which we can see our vices and defects, and all that is evil within us. But we most frequently act like the dog barking at its own reflection in the mirror in the belief that it sees another dog instead of itself.
+
+_Schopenhauer_
+
+#### 11
+
+Self-reliant, stupid and immoral people frequently inspire respect in humble, clever and moral people because a humble man, judging by his own inner worth, cannot im agine that an evil person could so esteem himself.
+
+#### 12
+
+A man who is in love with himself has few rivals.
+
+_Lichtenberg_
+
+#### 13
+
+Frequently people without learning and education very clearly, consciously and easily receive the true teachings of Christianity, while the most learned people continue steeped in the mire of crassest paganism. It is because plain people are frequently humble, whereas learned people are mostly self-confident.
+
+#### 14
+
+For a rational understanding of life and death, and in order to await the latter calmly, it is needful to realize one's insignificance.
+
+You are an infinitely small particle of something, and you would be nothing if you did not have a definite calling or task. Only this gives a meaning and a significance to your life. And your calling is to make use of the instru ments given to you and to all that is living; to spend your body in the fulfillment of the task prescribed to you. There fore all tasks are equal and you can do nothing more than what is prescribed to you. You can be only a hinderer of God or a doer of His will. Therefore man cannot ascribe to himself anything important or great. It suffices for you to attribute to yourself some great or exceptional task, and there is no end to disappointments, contentions, envy and all sorts of suffering. It suffices that you attribute to your self the importance of some great plant that bears fruit and you are lost.
+
+Peace, liberty, joy of life and freedom from fear of death are granted to him only who knows that in this life he is only a servant of his Master,
+
+### III. Humility Unites Men in Love
+
+#### 1
+
+To be unknown to men, or to be misunderstood by them, and not to grieve because of it — herein is the charac teristic of a truly virtuous man who loves his fellow-men.
+
+_Chinese wisdom_
+
+#### 2
+
+Just as water can not remain on a height, even so goodness and wisdom are strangers to the proud. The one and the other seek lowly places. Persian wisdom.
+
+#### 3
+
+He is a good man who remembers his sins and for gets his goodness, and he is an evil man who remembers his goodness and forgets his sins.
+
+Do not forgive yourself, and you will easily forgive others.
+
+#### 4
+
+You can recognize a good and a wise man in that he regards other people as better and wiser than himself.
+
+The most agreeable people are the saints who consider themselves sinners; the most disagreeable people are the sinners who consider themselves saints.
+
+_Pascal_
+
+#### 6
+
+How hard it is to love or to pity self-confident, proud and boastful people. This alone shows not only how good, but how valuable is humility. More than anything else on earth it arouses the most precious sentiment in life — love.
+
+#### 7
+
+Everybody loves a humble man. We all strive so much to be loved, why should we not try to be humble?
+
+#### 8
+
+So that people may live well, peace must reign among them. But where each man strives to be higher than the next, there can be no peace. The humbler men are, the more readily will they live a life of peace.
+
+### IV. Humility Unites Man With God
+
+#### 1
+
+There is nothing stronger than an humble man, be cause an humble man, renouncing self, yields to God.
+
+#### 2
+
+Beautiful are the words of the prayer: "Come and dwell in us." All is comprised in these words. Man has all that he requires if God comes to dwell in him. So that God may dwell in us, we must do only one thing: diminish our selves in order to give place to God. As soon as man has diminished himself, God enters and dwells in him. There fore in order to have all that is needful to him, man must first humble himself.
+
+#### 3
+
+The more deeply man penetrates into self, and the more insignificant he appears to himself, the higher he rises towards God.
+
+_Brahminic wisdom_
+
+#### 4
+
+He who worships the All-Highest, pride flees from his heart even as the light of a camp fire before the rays of the sun. He whose heart is pure and in whom there is no pride, he who is humble, constant and simple, who looks upon every creature as upon his friend and loves every soul as his own, he who treats every creature with equal tenderness and love, he who would do good and has aban doned vanity — in his heart dwelleth the Lord of life.
+
+Even as the earth is adorned with beautiful plants which she brings forth, even so is he adorned in whose soul dwell eth the Lord of life.
+
+_Vishnu Parana_
+
+### V. How to Combat Pride
+
+#### 1
+
+True humility is difficult. Our heart revolts at the thought of scorn and humiliation. We strive to hide all things that could humiliate us before the eyes of others, we strive to hide them before ourselves. If we are evil we do not desire to see ourselves as we are. But no matter how difficult true humility may be, it is possible. Let us strive to rid ourselves of all things that impede it.
+
+_Pious thoughts_
+
+#### 2
+
+The very defects which are so annoying and in tolerable in others seem as nothing and impalpable in our own self. We do not feel them. It frequently happens that people speaking of others and judging them harshly fail to notice that they accurately describe themselves.
+
+Nothing would help us more to correct our faults than if we could see ourselves in others. If we clearly saw our faults in others we should hate our faults just as they de serve.
+
+_La Bruytre_
+
+#### 3
+
+Nothing is so harmful in striving after moral per fection as self-satisfaction.
+
+Happily, if we grow better, the improvement is so im perceptible that we can not observe our success excepting after a long lapse of time.
+
+But if we note our improvement it is a sign that we have either stopped advancing or are retrogressing.
+
+#### 4
+
+Avoid the thought that you are better than others, and that you have virtues which others lack. Whatever your virtues be, they are worthless if you regard yourself better than other people.
+
+#### 5
+
+Endeavor not to think well of yourself. If you can not think ill of yourself, know that it is bad enough that you can not think ill of yourself.
+
+#### 6
+
+Any comparison of yourself with others for the pur-
+
+pose of self-justification is an error and an obstacle to good life and to its principal concern — striving after perfection. Compare yourself with supreme perfection only, and not with other people, who may be lower than you.
+
+#### 7
+
+In order to learn humility, strive to detect yourself in proud thoughts when alone.
+
+#### 8
+
+Are you abused or condemned — be glad; are you praised or approved — be on your guard.
+
+#### 9
+
+Do not fear humiliations; if you can bear them in humility they will redeem themselves with the spiritual blessings that are associated with them.
+
+#### 10
+
+Strive not to conceal in obscure nooks of your mind the humiliating remembrances of your sins, but on the contrary keep them always in readiness so that in judging the sins of others you may remember your own.
+
+#### 11
+
+Always regard yourself as a scholar. Never think that you are too old to learn, that your soul is just as it should be and can not improve. For a rational man there is no graduation from school: he is a learner until his grave.
+
+#### 12
+
+Only he who is humble in heart can know the truth. Humility does not evoke envy.
+
+Big trees are borne away by the stream, small brushes remain.
+
+A wise man said: "My child, do not grieve if you have not been rightly esteemed, for no one can deprive you of what you have done, or render to you that which you have not done. A prudent man is content with the esteem that he has merited."
+
+"Be good-natured, respectful, friendly, caring for the gain of others, and happiness will come to you as naturally as the water finds its level."
+
+_Vishnu_
+
+### VI. Effects of Pride
+
+#### 1
+
+He who lacks humility always condemns others. He sees the faults of other people, but his own passions and vices grow more and more. Buddhist wisdom.
+
+#### 2
+
+A man who is not enlightened by Christianity loves only himself. And loving himself, he would be great, but he sees that he is small, he would be important, but he sees that he is insignificant, he would be good, but he sees that he is evil. And seeing these things man begins to dislike the truth and to invent such arguments as would prove to him that he is indeed such as he would be, and having in vented such arguments he becomes in his own eyes great, important and good. Herein is the great twofold sin-pride and falsehood. Falsehood comes from pride, and pride from falsehood.
+
+_Pascal_
+
+#### 3
+
+He who fails to abhor that self-love which compels him to regard himself as above all else in the world is en tirely blind, for nothing is so much out of harmony with justice and truth as such an opinion of self. It is false in itself, because one can not be higher than anything else in the world, and it is besides unfair, as everybody else seeks the same thing for himself.
+
+_Pascal_
+
+#### 4
+
+There is one dark spot on our sun: it is the shadow which is cast by the veneration we feel for our own per son.
+
+_Carlyle_
+
+#### 5
+
+There is no human superiority — beauty, strength, wealth, honors, learning, enlightenment, even goodness — which unassociated with humility would not degenerate from superiorities and good qualities into repulsive characteristics. There is nothing more repulsive than a man boasting of his wealth, position, learning, mind, enlighten ment and goodness. People crave to be beloved of others and know that pride is repulsive, and yet they cannot be humble. Why? Because humility can not be acquired in dependently. Humility is the effect of removing your de sires from the domain of the material into the domain of the spiritual.
+
+### VII. Humility Offers Man Spiritual Happiness and Strength in Fighting Against Temptations
+
+#### 1
+
+There is nothing more helpful to the soul than hu miliation received with joy. Just as a warm rain after the glaring and searing sun of self-satisfaction, humiliation meekly received refreshes the soul of man.
+
+#### 2
+
+The portal of the temple of truth and blessedness is low. Only they will enter the temple who approach it with head bowed down. And happy are they who enter. There is wide scope and freedom therein, and people love one another and help one another and know no sorrows.
+
+This temple is the true life of man. The portal of the temple is the teaching of wisdom. And wisdom is granted unto the humble, unto those who do not lift themselves up but abase themselves.
+
+#### 3
+
+Perfect joy, according to Francis of Assisi, is in bearing unmerited reproach, and suffering even bodily harm without experiencing enmity against the cause of the re proach and of pain. This joy is perfect because no injuries, insults or attacks of people can violate it.
+
+#### 4
+
+"For whosoever exalteth himself shall be abased; and he that humbleth himself shall be exalted."
+
+_Luke XIV,_ 2.
+
+#### 5
+
+The feeblest thing on earth overcomes the strongest; the lowly and humble overcomes the exalted and proud. Only few in this world realize the power of humility.
+
+_Lao-Tse_
+
+#### 6
+
+The higher a man accounts himself, the weaker he is. The lower he accounts himself, the stronger he is — both before himself and before others.
+
+#### 7
+
+There is nothing more gentle and yielding on earth than water, and yet when it encounters that which is hard and stubborn, nothing can compare with it in strength. The feeble conquers the strong. The gentle overcomes the cruel. The humble vanquishes the proud. Everybody in the world knows this, but no one will act thereon.
+
+_Lao-Tse_
+
+#### 8
+
+The rivers and seas rule the valleys over which they flow: this is because they are lower than they.
+
+Therefore if a saint would be above the people he must strive to be lower than they. If he would lead them, he must be behind them.
+
+Therefore again, if a saint live above the people, the people do not feel it. He is ahead of his people, but the people do not suffer because of it. And for this reason the world unceasingly praises him. The holy man quarrels with no one, and no one quarrels with him.
+
+_Lao-Tse_
+
+#### 9
+
+Water is thin, light and yielding, but if it encounter something hard and stubborn, nothing can prevail against it. It tears down houses, it tosses great vessels like nut shells, it washes away embankments. Air is still thinner, softer and more yielding, and it is still more powerful when encountering that which is firm, hard and stubborn. It tears out big trees by the root, it also destroys houses, and it raises the water itself in mighty waves and drives it along in clouds. That which is gentle, soft and yielding over comes that which is harsh, stern and unyielding.
+
+Even so in the life of men. If you would conquer, be gentle, mild and yielding.
+
+#### 10
+
+In order to be strong, be like water. If there are no obstacles it flows freely; if it encounters a dam, it stops; if the dam be broken, it flows again; in a square vessel it is square; in a round vessel it is round. Because it is so submissive it is at once gentlest and strongest.
+
+## Truthfulness
+
+Superstitions are an obstacle to right living. Deliver ance from superstitions is only in truthfulness — not only before others but also before self.
+
+### I. What Must Be Our Attitude to Established Convictions and Customs?
+
+#### 1
+
+One of the most common methods of denying the existence of God is always and unconditionally to accept public opinion as correct and never to heed that voice of God which is constantly heard in our soul.
+
+_Ruskin_
+
+#### 2
+
+Though the whole world accepted a doctrine as true, though it be ever so ancient, man must examine it in the light of his reason and boldly reject it if it fails to be in accord with the demands of reason.
+
+#### 3
+
+"And ye shall know the truth, and the truth shall make you free."
+
+_John VIII,_ 32.
+
+#### 4
+
+The man who acknowledges the divinity of his soul must examine in the light of his reason all the teachings which are accepted by people as undoubted truths.
+
+#### 5
+
+He who would become a true man must give up pleasing the world; he who would lead the true life must refuse to be guided by that which is accepted as good and must assiduously search where and what is the true good. There is nothing holier and more profitable than the inde pendent inquisitiveness of the soul.
+
+_Emerson_
+
+#### 6
+
+If a thing be true let us believe it: whether we be poor or rich, men or women or children. If a thing be untrue, let none of us believe it: neither rich nor poor, neither multitudes nor individual men, women and children. The truth should be proclaimed from the housetops.
+
+Some always whisper that it is dangerous to expose certain things to the majority of the people. They say: we know these things to be untrue, but they are necessary for the people. It is well for the people to believe in them and much harm may ensue if their faith in them is shaken.
+
+No, crooked paths will always remain crooked, though they be designed for the deception of the vast majority of people. Falsehood can never do any one any good. And therefore we acknowledge only one law for all people: to follow the truth, as we know it, no matter where it may lead us.
+
+_Clifford_
+
+#### 7
+
+Both good and evil mingle in our readiness to be lieve in that which is presented to us as the truth: it is this readiness which permits the progressive movement of so ciety, and it is this very readiness which makes this progres sive movement so painfully slow; thanks to it each genera tion receives without effort the knowledge which is its heritage acquired by the toil of those who have gone before, and each generation thanks to it appears a slave to the errors and the superstitions of its predecessors.
+
+_Henry George_
+
+#### 8
+
+The longer a man lives the freer he becomes of superstitions.
+
+#### 9
+
+All superstitions are merely corruptions of thought, and therefore deliverance from them is possible only through applying to them the demands of truth as revealed by reason.
+
+#### 10
+
+To believe in that which is profitable and genuinely agreeable to us in itself is a natural characteristic of children and of mankind in its infantile stage as well. The longer man and mankind live, the more enlightened and certain the human reason becomes, the more man and man kind are released from the erroneous idea that all that is true which is profitable to man. Therefore every individual and humanity at large, as they progress in life, must examine in the light of their reason and of the wisdom of their predecessors all the statements regarding truth which are offered them as articles of faith.
+
+#### 11
+
+All truths expressed in words form a force the effect of which is infinite.
+
+### II. Falsehoods, Its Causes and Effects
+
+#### 1
+
+Think not that it is necessary only in things of im portance to speak and to act the truth. It is necessary to speak and to act the truth even in most trifling matters. It is not the degree of evil, greater or less, which may be the result of your untruth that is essential. The essential thing is that you shall never defile yourself with falsehood.
+
+#### 2
+
+If life is out of harmony with truth, it is none the less better to acknowledge the truth than to hide it: we can change our life for the sake of truth; but we cannot alter truth at all, it will remain as it is and will not cease to convict us.
+
+#### 3
+
+We all love truth more than falsehood, but in mat ters affecting our life we frequently prefer falsehood to truth because falsehood furnishes an excuse for our evil life, while truth exposes it.
+
+#### 4
+
+In the case of every truth which passes into the consciousness of people and is clearly recognized, the truth which replaces it is obvious. Nevertheless those who either profit by or are accustomed to the delusion seek by all means to sustain it. At such a time it is peculiarly impor tant to proclaim the truth boldly.
+
+#### 5
+
+If people tell you that it is not worth while in all things to strive for truth, because you will never attain per fect truth, do not trust such men and beware of them. They are the bitterest foes of truth and your own foes as well.
+
+They speak thus only because their own life is not in accordance with the truth, and they know it, but they would have others live like themselves.
+
+#### 6
+
+If you would know the truth, first of all rid your self though for a season of all the considerations of your own gain from this or that decision.
+
+#### 7
+
+It delights you to discover the untruth of others and to expose it, but how much more ought it to delight you if you detect yourself in an untruth and expose your self. Endeavor to afford yourself this delight as frequently as possible.
+
+#### 8
+
+Be falsehood with its temptations never so enticing, a time comes when it overwhelms a man with such agonies that he turns to truth not because of a thirst for truth, but merely to escape falsehood and the inevitable tissue of suf fering resulting from it, and in truth alone he finds his salvation.
+
+#### 9
+
+What is the cloud that has enveloped the world? Why is there no light in it? What defiles it? Wherein is its great peril?
+
+Its peril is in the fact that men do not live by the divine reason which has been given them, but by that common and corrupted reason which has been amassed among them for the justification of their passions. Men suffer and seek salvation. What then will save them. Only respecting their reason and following after truth.
+
+From _Oriental sources_.
+
+#### 10
+
+Bitter experience shows that we cannot adhere to former conditions of life and must therefore find new conditions suitable to modern needs; but instead of using their reason for the determination and the establishment of these conditions they employ their reason to detain life in the condition which characterized it centuries back.
+
+#### 11
+
+Falsehood hides from us the spirit of God that dwelleth in us and in others, and therefore there is nothing more precious than truth which brings us back to the love of God and of our neighbors.
+
+#### 12
+
+There is no greater misfortune than when man begins to avoid truth for fear it will show him how bad he is.
+
+_Pascal_
+
+#### 13
+
+The most certain mark of the truth is simplicity and clearness. Falsehood is always complex, fanciful and verbose.
+
+#### 14
+
+It is possible to be lonely in one's private temporary environment, but our every thought and sentiment will finds its echo in humanity. In the case of a few men whom the greater part of mankind recognizes as its leaders, reformers and illuminators this echo is tremendous and reverberates with exceptional power. But there does not exist a man whose thoughts do not produce a similar though correspondingly weaker effect. Each genuine manifestation of the soul, each expression of personal conviction is helpful to someone or in some way, even if you are not aware of it yourself, even if your mouth is silenced or the strangling rope is tightened around your neck. A word spoken to another retains its indestructible effect; like all motion it is indestructible but is merely changed into another form.
+
+_Amiel_
+
+### III. On What Rests Superstition?
+
+#### 1
+
+The greater veneration surrounds objects, customs or laws the more carefully must we examine their claims to veneration.
+
+#### 2
+
+There are many ancient truths that appear to us credible merely because we have never given them any seri ous thought.
+
+#### 3
+
+Reason is the greatest sanctuary in the world, and therefore it is the greatest sin to abuse it through employing it either to conceal or to corrupt the truth.
+
+#### 4
+
+Surveying the history of mankind we observe every now and then that the most obvious absurdities passed among men as indubitable truths, that entire nations fell victims to the most savage superstitions and humbled them selves before other mortals, frequently before idiots or liber tines. And the cause of these absurdities and sufferings has always been the same: accepting as an article of faith things that even infants could recognize as irrational.
+
+_Henry George_
+
+#### 5
+
+Our age is the true age of criticism. Everything accepted as an article of faith is subjected to criticism.
+
+Reason respects only that which is capable of passing its free and public test.
+
+_Kant_
+
+#### 6
+
+Do not fear the destruction wrought by reason among the traditions established by men. Reason can not destroy anything without replacing it by the truth. This is its characteristic.
+
+### IV. Religious Superstitions
+
+#### 1
+
+It is bad if people do not know God, but it is worse if they acknowledge as God that which is not God.
+
+_Lactantius_
+
+#### 2
+
+We have no more religion. The eternal laws of God with their eternal paradise and hell have been transformed into rules of practical philosophy based on adroit calcula tions of profit and loss, with a weak remainder of respect for the joys furnished by virtue and lofty morality. Using the language of our ancestors we have forgotten God, and making use of the modern method of expression we must say that we falsely interpret the life of the world. We calmly close our eyes and refuse to see the eternal sub stance of things and regard only their seeming and illusory appearance.
+
+We calmly regard the universe as a gigantic unintel ligible accident; judging by its external appearance it appears to us fairly plainly as an immense cattle pen or a workhouse with spacious kitchens and dining tables which have room only for prudent people.
+
+No, we have no God. The laws of God have been replaced by the principle of maximum profit.
+
+_Carlyle_
+
+#### 3
+
+God gave us His reason that we might serve Him; but we use this reason to serve self.
+
+#### 4
+
+"Beware of the scribes, which desire to walk in long robes, and love greetings in the markets, and the highest seats in the synagogues, and the chief rooms at feasts;
+
+"Which devour widows' houses, and for a shew make long prayers: the same shall receive greater damnation."
+
+_Luke XX_, 46-47.
+
+#### 5
+
+"But be not ye called Rabbi: for one is your Master, even Christ; and all ye brethren. And call no man your father upon the earth: for one is your Father, which is in heaven.
+
+"Neither be ye called masters: for one is your Master, even Christ."
+
+_Matthew XXII_, 8-10.
+
+#### 6
+
+Without purity of soul why worship God? Why say: I will go to Benares. How shall he reach the true Benares who has done evil?
+
+Holiness is not in the forests, nor in heaven, nor in earth, nor in sacred rivers. Purify yourself, and you shall see Him. Transform your body into a temple, cast off evil thoughts and behold Him with your inner eye. When we recognize Him, we recognize ourselves. Without personal experience Scripture alone will not banish our fears, even as darkness is not dispelled by pictured fire. What ever your faith and your prayers, while there is no truth in you, you will not attain the path of blessedness. He who recognizes the truth is born again.
+
+The source of true blessedness is the heart. He is a madman who seeks it elsewhere. He is like a shepherd who goes abroad to seek the lamb which is sheltered in his bosom.
+
+Why do you gather stones and build great temples? Why torture yourselves while God dwelleth in you constantly?
+
+The dog in your courts is better than a lifeless idol in your house, and better than all the demigods is the great God of the universe.
+
+The light which dwelleth in the heart of every man like unto the morning star, that light is your refuge.
+
+_Vemana_
+
+#### 7
+
+How strange is it that the world tolerates and re ceives from among the highest revelations of truth only the most ancient and those which no longer benefit the age, but belittles and even hates all direct revelation, all original thought.
+
+_Thoreau_
+
+#### 8
+
+The religious consciousness of humanity is not im mobile, but changes continuously, becoming ever clearer and purer.
+
+#### 9
+
+The correction of the existing evils cannot com mence in any other way but with the exposure of religious falsehood and the establishment of religious truth by every individual in his own inner self.
+
+### V. The Rational Principle in Man
+
+#### 1
+
+What is reason? Whatever we define is defined by our reason. And therefore by what shall we define reason?
+
+If we define all things by reason, by the same token we cannot define reason. Yet we all not only recognize reason, but recognize only reason without doubt and we recognize it all equally well.
+
+#### 2
+
+The true worth of man is in that spiritual principle which we sometimes call reason and sometimes conscience. This principle rising above the local and temporal contains positive truth and eternal righteousness. In midst of the imperfect it sees the perfect. This principle is general, dis passionate and always contrary to all that is prejudiced and selfish in human nature. This principle imperiously tells each one of us that our neighbor is as precious as our own self, and that his rights are as sacred as ours. It commands us to receive the truth no matter how repugnant it be to our pride, and to be just no matter how unprofitable it be for us. This same principle calls upon us to rejoice in love, in all that is beautiful, holy and blessed, no matter in whom we may find these qualities. This principle is a ray of the Divine in man.
+
+_Channing_
+
+#### 3
+
+All that we know we know through our reason. Therefore do not trust those who say that we should not follow our reason. Those who speak thus are like men who would advise us to extinguish the only light which guides us through darkness.
+
+#### 4
+
+We must trust our reason. This is a truth which we can not and must not conceal. We can not believe in God if we belittle the importance of that faculty through which we know God. Reason is that faculty to which reve lation is addressed. Revelation could be understood only by reason. If after a conscientious and unbiased appeal to our best faculties a certain religious teaching appears to us to be contrary to and out of harmony with the main principles of which we have no doubt, we must decline to have faith in such a teaching. I am more convinced that my reasonable nature is of God than any book is an expression of His will.
+
+_Channing_
+
+#### 5
+
+Reason reveals to man the meaning and the significance of his life.
+
+#### 6
+
+Reason is not given to man to teach him to love God and his neighbor. This has been implanted in the heart of man independently of reason. Reason was given to man to point out to him what is true and what is false. Man need only reject that which is false and he will learn all that he needs.
+
+#### 7
+
+The errors and the disagreements of men in the matter of seeking and recognizing truth are due to nothing as much as to their distrust of reason; as a consequence human life, ruled by customs, traditions, fashions, supersti tions, prejudices, violence and all sorts of things excepting reason, takes its own course, and reason exists by itself. It also frequently happens that if use is made of thinking at all, it is applied not to the search and the propagation of truth, but to a persistent endeavor to justify and to sustain customs, traditions, fashions, superstitions and prejudices at all costs.
+
+The delusions and disagreements of people in the matter of recognizing the one truth are not due to a difference in the nature of human reason or to its inability to point them to the one truth, but to the fact that they do not trust it.
+
+If they had faith in their reason they would find a method of verifying the indications of reason in themselves and in others. Having found such a method of mutual verifi cation they would be convinced that reason is the same in all, and they would submit to its dictates.
+
+_Th. Strakhoff_
+
+#### 8
+
+Reason is one and the same in all people. Associa tions of men and their mutual influence one upon the other are based on reason. The dictates of reason — which is one and the same in all people — are obligatory to all men.
+
+#### 9
+
+To the degree that a man is truthful he is divine; the invulnerability, the immortality, the majesty of the divine enter man together with truthfulness.
+
+_Emerson_
+
+#### 10
+
+Remember your reason having the faculty of life in itself makes you free provided you do not turn it to the service of the flesh. The soul of man, enlightened by rea son, free from passions which obscure this world, is a true fortress and there is no refuge open to man which is more secure and inaccessible to evil. He who does not know this is blind, and he who knowing this does not trust to reason is truly unfortunate.
+
+_Marcus Aurelius_
+
+#### 11
+
+One of the principal duties of man is to allow that shining principle of reason which has been granted us by heaven to radiate in its full force.
+
+_Chinese wisdom_
+
+#### 12
+
+I glorify Christianity because it expands, strengthens and elevates my rational nature. If I could not remain rational as a Christian I would reject Christianity. For the sake of Christianity I feel constrained to sacrifice my property, my reputation, my life, but no religion exists for which I would sacrifice that reason which elevates me above the animal and makes me a man. I do not know a greater blasphemy than to renounce the highest faculty given me by God. To do this is to oppose wilfully the divine principle which dwells in us. Reason is the highest expression of our thinking nature. It is in accord with the unity of God and universe and strives to make the soul a reflection and a mirror of supreme unity.
+
+_Channing_
+
+#### 13
+
+If a man did not know that he could see through his eyes and never opened them, he would be pitiable indeed. But still more is to be pitied the man who does not understand that reason has been granted to him so that he might bear all vicissitudes. With the help of reason we can bear all vicissitudes. Man endowed with reason will never in his life meet intolerable vicissitudes. Such do not exist for him. Yet how often instead of facing some vicissitude boldly we pusillanimously endeavor to avoid it. Is it not better to rejoice that God has given us the power to bear with equanimity that which happens to us independent of our volition and to thank him that he has put our soul under subjection only to that which depends upon ourselves? He did not put our soul under subjection to our parents, to our brothers, to our body or to death. In his goodness he put it under sub jection to one thing only, namely our reason — and that de pends on us.
+
+_Epictetus_
+
+#### 14
+
+Reason has been given us by God that we may serve Him. Therefore we must preserve it in all purity so that it may always distinguish the true from the false.
+
+#### 15
+
+Man is free only if he abides in the truth. And truth is revealed by reason.
+
+### VI. Reason — The Censor of Creeds
+
+#### 1
+
+When a man uses his reason for the solution of such problems as why the world exists and why he lives in this world he experiences a sensation akin to dizziness or vertigo. The mind of man can not find answers to these problems. What does this mean? It means that reason was not given to man to answer these questions, and that the very fact of formulating these questions is an error of reason. Reason only solves the question how we are to live. And the answer is very clear: so as to do good to ourselves and to others. This is needful to all that is living, myself included. And the possibility of living so is given to all that is living, in cluding myself, through the exercise of reason. And this solution excludes all questioning as to why and wherefore.
+
+#### 2
+
+"Are we not right? Is it not necessary to keep the people deceived? See how savage and uncultured they are."
+
+No, they are savage and uncultured, because they have been rudely deceived. Therefore first of all cease to deceive them rudely.
+
+#### 3
+
+If God, as an object of our faith, is above our rea soning, it does not follow that we must neglect the activity of our reason and account it harmful.
+
+Although the objects of our faith without a doubt are beyond the circle of our reasoning, reason has a vast im portance in relation to them, because we can not possibly do without it. It has the functions of a censor which ad mitting from the domain of faith truth that is above our reason, in other words a metaphysical truth, still rejects all fictitious truths which contradict our reason.
+
+But in addition to this affirmative function, reason has also a proper negative function in delivering man from sins, errors (which are excuses for sin) and superstitions.
+
+_Th. Strakhoff_
+
+#### 4
+
+Be a light unto yourself. Be a refuge unto yourself. Hold fast to the light of your lamp nor seek another refuge.
+
+_Sutta_
+
+#### 5
+
+"While ye have light, believe in the light, that ye may be the children of light." _John VII_, 36.
+
+In order to know the true religion it is needful not to crush reason — as it is taught by false teachers — but to purify and to exercise it, to examine by its light all that is sub mitted to us.
+
+#### 6
+
+If you would attain to the knowledge of the all embracing "I," you must first know yourself. In order to know yourself you must sacrifice your own "I" to the uni versal "I." Sacrifice your life if you would live in the spirit. Remove your thoughts from external things and from all that appears from without. Endeavor to keep away from yourself all images that arise so that they may not cast their black shadows on your soul.
+
+Your shadows live and vanish. That which is eternal in you, that which has reason, does not belong to the eva nescent life. This eternal principle it within you, transport yourself into it, and it will reveal unto you that which is false and all that which is true and all that which you need know.
+
+_Brahminic wisdom_
+
+## The Ills of Life
+
+All that which infringes upon the happiness of our bodily life we call ills. And yet the whole of our life is a gradual process of delivering our soul from that which con stitutes the happiness of our body. Therefore for him who comprehends life as it really is there are no ills.
+
+### I. That Which We Call Suffering is a Necessary Condition of Life
+
+#### 1
+
+It is a blessing to man to bear the misfortunes of this earthly life because this leads him into the sacred soli tude of his heart, where he finds himself as it were an exile from his native soil, obliged to trust to no earthly joys. It is also a blessing to him to encounter contradictions and re proaches, when others think evil of him, though his inten tions be pure and his actions righteous, for this serves to keep him in humility and is an antidote to vain glory.
+
+These things are blessed mainly because they enable us to commune with the witness within us who is God, and we may commune with Him when the world spurns us, holds us in contempt and deprives us of love.
+
+_Thomas a Kempis_
+
+#### 2
+
+When Francis of Assisi was returning with a disci ple from Perugia to Porciunculo one bitterly cold and stormy day he discussed with his disciple herein consists perfect joy. He said that perfect joy is not in being praised of the people for virtues, nor in possessing the gift of heal ing the sick, making deaf to hear, giving sight to the blind, nor in foreseeing and foretelling the future, nor in fathom ing the course of the stars and. the properties of all plants and animals, nor even in the conversion of all men to the one true faith. "Wherein is then perfect joy?" inquired the disciple. And Francis replied: "When we reach the monastery wet, filthy, shivering with the cold and starving and knock at the gate, and the gatekeeper asks: 'Who are ye?' and we say: 'Brothers,' and he should reply: 'You lie, you are vagabonds strolling over the face of the world, en ticing the people, stealing alms. Get you gone, I will not let you in.' If then, benumbed with the cold and starving, we shall receive these words in humility and love and shall say to ourselves that the gatekeeper was right and that evi dently God had put it into his heart to treat us like this, only then shall we know the perfection of joy."
+
+Only receive every task and every injury with love to wards him who imposes the task and does us the injury, and every task and every injury will be transformed into joy. And this joy is perfect because every other joy can be de stroyed, but nothing can destroy this joy, for it is always within our power.
+
+#### 3
+
+If some divinity offered us to eliminate out of our life all sorrows and all that causes sorrows our first impulse would strongly tempt us to accept such an offer. When burdensome tasks and necessities oppress us, when agonies of pain consume us, when anxieties wring our heart, we are bound to feel that there is nothing preferable to life without toil, life of rest, security, peace and plenty. But I think that after a brief experience of such a life we should ask that divinity to restore us to our former life with its toil, necessities, sorrows and anxieties. A life entirely free from sorrows and anxieties would prove not only uninteresting but intolerable. For together with the sorrows and the causes of sorrow, all dangers, obstacles and failures would disappear from life, and with them all effort and striving and the excitement of peril and the strain of battle and the triumph of victory. Only the unhindered realization of plans, success without obstacles would remain. We should soon tire of a game of which we know in advance that we must win.
+
+_Fr. Paulson_
+
+### II. Sufferings Stimulate Man's Spiritual Life
+
+#### 1
+
+Man is the spirit of God clothed in a body.
+
+In the beginning of life man is ignorant of this and imagines that his life is in the body. But the longer he lives the more clearly he realizes that his true life is in the spirit and not in the body. Man's whole life is in the increasing recognition of this fact. This knowledge is most easily and clearly attained through the sufferings of the body, so that such sufferings make our life such as it should be — a spir itual life.
+
+#### 2
+
+The physical growth is merely a storing up of sup plies for the spiritual growth which commences as the body begins to decline.
+
+#### 3
+
+A man lives for his body and says: All things are evil. Another lives for his soul and says: No, all things are good. That which you call evil is the very whetstone with out which my soul — the most precious thing that is in me — would be dulled and rusted.
+
+#### 4
+
+All the misfortunes of mankind as a whole and of individuals lead, though indirectly, to the same goal which is -set before man: the constantly increasing manifestation of the spiritual principle in each individual and in mankind at large.
+
+#### 5
+
+"For I came down from heaven not to do my own will, but the will of my Father who sent me; and this is the Father's will which hath sent me, that of all which he hath given me I should lose nothing." This we read in John VI, 38-39. That is we must preserve, cultivate and develop to the highest possible degree that spark of divinity which was given us, which was entrusted to us as a child is entrusted to its nurse. And what is needful to achieve this purpose? Not the gratification of passions, not the glory of men, not a life of repose, but on the contrary, abstinence, humility, labor, struggle, privations, sufferings, humiliations and persecutions, even as many times stated in the New Testament. And all these needful visitations are sent us in all sorts of forms, on a small or on a large scale. Oh, that we knew how to receive them as needful and therefore glad some tasks, instead of as annoyances that trespass upon that animal existence which we mistake for our life and the im provement of which we count happiness.
+
+#### 6
+
+Even if man could escape the fear of death and ig nore it, the sufferings alone, to which he is subject, terrible, purposeless, utterly unjustified and inevitable as they are, would suffice to controvert all rational meaning that is ascribed to life — so say some.
+
+I am engaged in a good and indubitably useful occupa tion, and suddenly I am stricken with disease, my task is interrupted, and I am suffering agonies without any sense or purpose. A screw in the rail is rusty and it happens to slip out just as a train is passing with a loving mother on board and her children are crushed before her very eyes. An earthquake must shake the very spot on which a city is founded, say Lisbon or Verny, and guiltless people are buried alive and die in terrible agony. Why all these things and thousands of other senseless dreadful accidents and calamities which strike terror into the hearts of people? Where is the sense of them?
+
+The answer is that all these arguments are absolutely right for the people who do not acknowledge a spiritual life. And for such people human life indeed has no sense. But the fact is that the life of people who do not acknowledge a spiritual life can not be otherwise but senseless and calami tous. For if people who do not believe in a spiritual life only drew the logical conclusions which inevitably follow a merely material view of life, those people who regard life as a merely physical existence would not consent to live a moment longer. What laborer would consent to work for a master who when hiring the laborer would stipulate the right at will to roast the laborer alive or over a slow fire, or to flay him alive, or to pull out his veins and do all sorts of terrible things, just as he does without any rhyme or reason with his other laborers in full view of the man he would hire? If men really understood life as they claim to do, that is as a mere material existence, not one should con sent to live in this world for very fear of these agonizing and inexplicable sufferings which he sees all around and which may befall him at any moment.
+
+Yet they continue to live, complaining and wailing over their misfortunes and still keep on living.
+
+There is but one explanation of this strange contradic tion: in the depths of their hearts people know that their life is not in the body but in the spirit, and that their suffer ings are always needful, are requisite for the happiness of their spiritual life. When men, seeing no sense in human life, revolt against sufferings, but still keep on living, it merely shows that asserting with their mind the materiality of life, they know in their hearts that it is spiritual and that no sufferings can deprive man of his true happiness.
+
+### III. Sufferings Teach Man to Maintain a Rational Attitude to Life
+
+All that which we call ills, all sorrows — if we only un derstood them as we ought — improve our soul. And in this improvement is our life:
+
+Verily, verily I say unto you, That ye shall weep and lament, but the world shall rejoice: and ye shall be sorrow ful, but your sorrow shall be turned into joy.
+
+A woman when she is in travail hath sorrow, because her hour is come: but as soon as she is delivered of the child, she remembereth no more the anguish, for joy that a man is born into the world.
+
+_John XVI_, 20-21.
+
+#### 2
+
+The sufferings of irrational life lead us to acknowl edge the need of rational life.
+
+#### 3
+
+Just as only the darkness of night reveals the heavenly lights, so only suffering reveals the true purpose of life.
+
+_Thoreau_
+
+#### 4
+
+Outward obstacles work no injury to the man who is strong in spirit, for injury is all that which disfigures or weakens, though they might cause injury to animals as they are angered or weakened by obstacles; but the man who meets with the strength of the spirit which is given to him finds only added moral beauty and strength in all ob stacles.
+
+_Marcus Aurelius_
+
+#### 5
+
+He who is young and inexperienced does not know that which older men learn by experience, he does not know that all that which we call sorrow is a genuine good, that it is a trial to prove how firm we are in that which we know and confess. And if we are not firm, trials are needed to make us firm.
+
+#### 6
+
+Only after an experience of suffering have I dis covered the close kinship of human souls with one another. No sooner have you had your full share of suffering than all those who suffer become intelligible to you. But more than that: your mind clears: circumstances and achieve ments of people hitherto hidden to you become manifest and you see clearly what is needful to each. Great is God who enlightens us. Enlightens us with what? With the very sorrows from which we would flee and hide. In sor row and suffering it is given to us to seek out the grains of wisdom that cannot be found in any book.
+
+_Gogol_
+
+#### 7
+
+If God gave us teachers of whom we knew for a certainty that they were sent of God himself, we should obey them freely and gladly.
+
+But we have such instructors in necessity and in all the vicissitudes of life.
+
+_Pascal_
+
+#### 8
+
+Not only is every visitation of Providence profitable to every creature, but it is profitable at the very time when it is sent.
+
+_Marcus Aurelius_
+
+#### 9
+
+The man who does not realize the beneficial nature of suffering has not commenced to live the life of reason, the true life.
+
+#### 10
+
+I pray God to free me from suffering which troubles me. But this suffering was sent to me by God to deliver me from evil. The master uses his whip on an animal to drive it from a burning inclosure and to save it, but the animal prays to escape the lash!
+
+#### 11
+
+That which we regard as our misfortune is mostly good which we have not yet comprehended.
+
+### IV. Sicknesses are Not a Hindrance But a Help to True Life
+
+#### 1
+
+Life consists in transforming the animal within us more and more into a spiritual being. And that which we call ills is requisite for this purpose. Only by the things which we call ills — griefs, sicknesses, sufferings — do we learn to transform our animal self into the spiritual.
+
+The mere fact, well known to us all, that those who succeed in all the things of life, those who are always well and rich, who know no injuries or humiliations, are fre quently so weak and mostly so very wicked, shows how necessary are trials to man. And yet we complain when it is our lot to bear them!
+
+#### 2
+
+We call suffering a misfortune, but if there were no suffering, man would not know where he ends and where that commences which is not himself.
+
+#### 3
+
+When we feel weakest in body, we can be strongest in spirit.
+
+_Lucy Mallory_
+
+#### 4
+
+There is no sickness which could prevent us from fulfilling the duty of man. If you cannot serve your neigh bor by toiling serve him by the example of bearing your suffering with love.
+
+#### 5
+
+Illness attacks every man and he must take heed not so much how to cure himself as how to live best in the cir cumstances in which he finds himself.
+
+#### 6
+
+There is a story about a man who was punished for his sins by being denied death. It may be boldly stated that if man were punished by being incapable of suffering, this punishment would be still more severe.
+
+#### 7
+
+It is wrong to conceal from a sick man that he may die of his sickness. On the contrary, he should be reminded of it. By concealing this fact from him, we deprive him of that blessing which illness can give him in stimulating him through the consciousness of approaching death to an in creased effort towards the apprehension of spiritual life.
+
+#### 8
+
+Fire destroys and gives comfort through warmth. Even so it is with sickness. When a man in good health tries to live well, he does so with an effort. But in the case of a sick man the burden of worldly temptations is lightened, and the task is made easy, and it is even awesome to think how this burden will return in fullness and will oppress us again as soon as the sickness is past.
+
+#### 9
+
+The worse a man feels in his body, the better off he is in spirit. And therefore man can not be badly off. The spiritual and the physical are like a pair of scales: the heavier the physical, the higher rises the spiritual and the better it is with the soul, and vice versa.
+
+#### 10
+
+"Senility, second childhood, is the decay of consciousness and of the life of man" — so say some.
+
+I call to my mind the picture of St. John the Divine, who, according to the tradition, passed into a state of sen ility, into second childhood. Tradition relates that he only repeated these words: "Brethren, love one another!"
+
+A centenarian, barely able to creep about, with watering eyes, mumbling forever these three words: "Love one an other!" In such a man physical existence is the faintest glimmer, it is all swallowed up by a new attitude to the world, by a new living creature that no longer can be bound in the envelope of the existence of carnal man.
+
+The man who knows life for what it truly is cannot speak of a decrease in life through sickness or old age, can not grieve over it, any more than the man who approaches the light can grieve over the lessening of his shadow in proportion to his approach to the light.
+
+### V. So-called Ills are Only Our Own Errors
+
+#### 1
+
+If anything disagreeable occurs to us, we mostly blame either our fate or other people. We do not realize that if either fate or other people can cause us any ill, then there is something wrong with us. He who lives for his soul cannot suffer any ill from any person or any thing: persecutions, injuries, poverty and sickness are as nothing to such a man.
+
+_Epictetus_
+
+#### 2
+
+Sufferings are particularly hard to bear for him who having set himself apart from the world fails to see the sins through which he brought suffering into the world and therefore considers himself blameless.
+
+#### 3
+
+Ills exist only within us, that is they exist in a place whence they can be removed.
+
+#### 4
+
+Frequently a superficial man meditating over the calamities which so oppress the human race loses hope in the possibility of improvement in life and experiences a feeling of dissatisfaction with Providence which rules the world. This is a grievous error. To be satisfied with Providence (though it set before us right now the most difficult path in life) is in the highest degree important not only that we may not lose courage amid the difficulties of life, but prin cipally that we may not, shifting the blame upon fate, lose sight of our own guilt, which is the sole cause of all ills.
+
+_Kant_
+
+#### 5
+
+Hopeless is the state of the man who in his misfor tunes reproaches his fate instead of himself, affirming thereby his own self-satisfaction.
+
+"We should be kind and gentle, if we were not irritated. We should be pious, if we were not so busy. I should be patient, if I were well. I should astonish the world, if I were only known."
+
+If we cannot improve and sanctify the circumstances in which we find ourselves, we shall not improve and sanc tify any other circumstances.
+
+The difficulties of our state are given us in order that we may smooth them over and overcome them with our goodness and firmness; the darkness of our state is given us in order that we may lighten it with the divine light of inner spiritual labors; griefs, in order that we may patiently and trustingly bear them; danger, that we may manifest our courage; temptations, that we may overcome them with our faith.
+
+_Martineau_
+
+#### 6
+
+Man may escape the calamities which are the visita tions of God, but there is no escape from those calamities which he visits upon himself through his evil life.
+
+### VI. The Recognition of the Beneficial Nature of Sufferings Destroys Their Oppressiveness
+
+#### 1
+
+What are we to do when all things leave us: health, joy, affections, freshness of feelings, memory, capacity for work, when it seems to us that the sun is growing chill and life loses all its charms? What are we to do when hope seems lost? Shall we stupefy ourselves or grow hardened? The answer is always the same: live the life of the spirit without arresting its growth. Let come what may, if you but feel that your conscience is calm, that you are doing that which your spirituality demands. Be what you should be, leave the rest to God. And even if there were no good and holy God, spiritual life would still be the solution of mysteries and the pole star for the progress of humanity, for it alone gives true happiness.
+
+_Amiel_
+
+#### 2
+
+Seek in sufferings their significance for the growth of your soul and bitterness of sufferings will vanish.
+
+#### 3
+
+Only know and believe that whatever happens to you leads you to your true spiritual happiness, and you will meet sickness, poverty, disgrace — all that which people regard as misfortunes — not as misfortunes, but as things necessary for your wellbeing, just as the farmer accepts the rain of which his fields are in need though it drench him to the skin, or as the patient swallows a bitter medicine.
+
+#### 4
+
+Remember that it is the distinguishing characteristic of rational beings to submit to their fate of a free will, but the shameful revolt against it is a characteristic of beasts.
+
+_Marcus Aurelius_
+
+#### 5
+
+The very thing that aggrieves us and appears to us as a hindrance to our accomplishing the task of our life, is in itself the task of our life. You are beset with poverty, slanders, humiliation. You need only pity yourself a little, and you will be the most wretched of men. And you need only realize that the task of life to which you are called is to live the best life possible in spite of poverty, sickness and humiliations, and you will immediately gather courage and confidence in place of despondence and despair.
+
+#### 6
+
+Each one of us has his cross and his yoke, not in the sense of a burden, but in the sense of a purpose in life, and if we do not look upon our cross as a burden, we find it easy to bear; we find it easy to bear of we are meek, obedi ent, humble of heart. And still more easy if we deny our selves; and still more easy if we bear this cross every hour as Christ teaches us; and still more and more easy if we forget ourselves in spiritual labor, even as people forget themselves in the cares of the world. The cross that is given to us to bear is the one thing on which we must labor. If the cross be sickness, bear it obediently; if it be the insults of people, know how to render good for evil; if it be humiliation, hum ble thyself; if it be death, receive it thankfully.
+
+#### 7
+
+The more you repel your cross, the heavier it be comes.
+
+_Amiel_
+
+#### 8
+
+It is beyond dispute more important how a man re ceives his fate than what it really is.
+
+_Humboldt_
+
+#### 9
+
+No sorrow is as great as the fear of it.
+
+#### 10
+
+An obstreperous horse, instead of pulling the vehicle to which it is harnessed, balks and struggles and is whipped into the bargain, and in the end must do as the driver directs. Even so with man if he declines to bear sorrows as trials and regards them as superfluous ills and balks against them.
+
+#### 11
+
+If you have an enemy and can take advantage of him in order to learn on him how to love your enemies, that which you regard an evil will become a great blessing to you.
+
+#### 12
+
+Sickness, loss of limbs, severe disappointments, loss of property, loss of friends — all these seem at first irreparable losses. But the lapse of years reveals the depth of healing power which lies in such losses.
+
+#### 13
+
+When you regard yourself unhappy, remember the misfortunes of others and also the fact that things might be worse. Also remember the things of which you were guilty in the past and are guilty now; remember also that the things which you call misfortunes were sent you as a trial in order that you might humbly and lovingly bear misfortunes and thus, thanks to misfortunes, become better. And in this growing better is the whole business of life.
+
+#### 14
+
+In the difficult time of sickness, loss and other sorrows, more than at any other time, you are in need of prayer: not prayer for deliverance, but in recognition of your dependence upon a higher will. "Not my will, but Thine be done, not what I will, but what Thou wilt, nor as I will, but as Thou wilt. My business in the circumstances wherein Thou didst place me is to fulfill Thy will." In diffi cult times it is most needful to remember that if things be hard, this difficulty is the task which is given me, and that it is just the one opportunity — which may not repeat itself — in which I may show that I really mean to do Thy will and not mine.
+
+#### 15
+
+All that is great in humanity is accomplished only with suffering. Jesus knew that even He had to expect it, and he foresaw all things: the hatred of those whose power he came to destroy, their secret conspiracy and their violence and the ungrateful treason of the very people whose sickness He had healed and whom He had fed with the heavenly bread of His word. He foresaw the cross, and the death, and that His own flock would abandon Him, which was even more grievous than death itself. And this thought never forsakes him, nor for an instant arrests Him. If his physical nature repels the cup, His firmer will receives it unflinchingly. And therein he gives an example that must be forever memorable to all those who would continue His work, to all those who, like Himself, will come to labor for the salvation of the people and for their deliverance from the burden of delusions and ills. If people would reach the goal towards which Christ is leading, they must follow the same path. Only at such cost can men serve men. You would have people truly brotherly, you summon them to obey the laws of their common nature, you fight against all oppression, all lawlessness, all hypocrisy. You clamor for the kingdom of justice, duty, truth and love to descend upon earth, how then should those whose strength is based on things of a contrary nature fail to rise against you? Can they let you, without a struggle, destroy their temple and build another — unlike theirs, not made by the hands of man, but an eternal temple the foundation of which is Truth?
+
+Abandon this hope if you ever have been frivolous enough to -cherish it. You will drain the cup to the last drop. You will be seized like thieves; false testimony will be sought against you, and against your own testimony they will rise up with the cry: He blasphemeth! And the judges will say: He is worthy of death. When this hap pens, rejoice. This last sign is the sign that you have per formed the true and needful task.
+
+_Lamenais_
+
+### VII. Sufferings Cannot Hinder the Fulfilment of the Will of God
+
+#### 1
+
+Man is never closer to God than when he is in trouble. Take advantage of this in order not to miss this opportunity of approaching that which is the sole source of immutable blessedness.
+
+#### 2
+
+How good is the ancient proverb that God sends sufferings to him whom He loves. For him who believes in this, suffering is no suffering but blessedness.
+
+#### 3
+
+A rational man who has reached advanced years and feels that he cannot perform by his physical strength even an hundreth part of what he could, say, thirty years earlier, has little cause to grieve, even as he felt no grief or even took any notice at the age of thirty of being unable to do the things which he could do in the days of his child hood. He knows only one thing that all of him, healthy or ill, strong or barely able to move on, then and now, exists only for the purpose of serving God. And he knows that he can serve God equally well whether he be capable of lifting several hundred pounds with one arm, or have strength barely to nod his head. He now knows that it is only the service of his body which requires more health and strength, and that bodily strength is unnecessary in the service of God, and that on the contrary a feeble state of the body only stimulates the service of God.
+
+The moment man diverts the meaning of his life from a striving after external blessings to the service of the Father, he no longer knows any difference between that which in worldly life is called good fortune and misfortune.
+
+#### 4
+
+Only say to yourself that all things that happen are the will of God, and have faith that the will of God is always good, and you will fear nothing, and your life will be forever a life of blessedness.
+
+## Death
+
+If a man views life as the life of the body, his life ends with the death of the body. But if man views his life as the life of the spirit he can not even imagine an en to his life.
+
+### I. The Life of Man Does Not Cease With the Death of His Body
+
+#### 1
+
+The whole life of man, from his birth even unto his death, is like unto one day in his life from the moment of his awaking unto the moment of his falling into slumber.
+
+#### 2
+
+Remember how sometimes after a heavy sleep you awake in the morning and fail to realize where you are, or to recognize someone at your bedside who is endeavoring to arouse you from sleep, and you hate to get up, as though you had not the power to do so. Then gradually you come to your senses, begin to realize who you are and where you are, and thoughts commence to get busy in your head, you get up and go about your business. Even so it is with man as he enters into life, gathers strength and reason and be gins to do his work.
+
+The only difference is that in the case of a man who was asleep and woke up, the process is a brief one, the thing of one morning, but in the case of the man who is born and grows up the process takes months and years.
+
+There is also another resemblance between the life of one day and the life of man as a whole: When man awakes he settles down to work and is busy and as the day progresses he gathers more and more energy until noon, but after that he is no longer as energetic as he had been during the morning. And towards evening he is still more tired and desires to rest. It is quite so in the life of man.
+
+In his youth man is full of vim and lives merrily, in middle age he lacks the same vigor, but with old age comes weariness, and he longs more and more for rest. And just as night follows day, and man lies down to rest, and the thoughts in his head grow confused, and falling asleep he no longer realizes himself with his senses and goes off somewhere into the unknown, even so it is with the man who dieth.
+
+Thus the awakening of man in the morning is a sort of a birth, the course of his day from morning until night a little picture of life, and sleep is death in miniature.
+
+We know when we hear thunder that the lightning has already struck and that therefore thunder can not kill and yet we tremble at a peal of thunder. It is even so with death.
+
+He who does not understand life imagines that with death all is lost, he fears death and hides from it just as the foolish person seeks to hide from the pealing of thun der, although thunder can not kill him at all.
+
+#### 3
+
+If a man start from a place which I can see on a march towards a place where I can not see him any more, but another reach this latter place more speedily, I have no reason to assume that he who walked slowly has lived more than he who walked briskly. I only know one thing: that if one man walk past my window slowly and another hur riedly, they both existed before I saw them and will be after they pass out of my sight. Even so with the life of others before their death which comes to my notice, whether the life was brief or long.
+
+#### 4
+
+Faith in immortality cannot be received from any one. You can not make yourself believe in immortality.
+
+In order to have faith in immortality you must view your life in those things wherein it is immortal.
+
+#### 5
+
+Death is a change of the envelope to which our spirit is joined. We must not confuse the envelope with that which is put into it.
+
+#### 6
+
+Remember that you are not standing but passing on, that you are not in a house but on a train which is taking you do death. Remember that your body either crawls or speeds towards death, but it is only the spirit within you that truly lives.
+
+#### 7
+
+Although I may be unable to prove it, I nevertheless know that the rational, free and incorporeal principle which dwelleth in me cannot die.
+
+#### 8
+
+Even if I were mistaken in the belief that souls are immortal, I should still be happy and content with my error; and while I live no man has the power to rob me of this confidence. This assurance gives me peace and perfect contentment.
+
+_Cicero_
+
+### II. True Life is Apart From Time, and Therefore True Life Has No Future
+
+#### 1
+
+Death is the dissolution of all those organs of asso ciation with the world which give us an idea of time. And therefore the question of the future has no meaning in re lation to death.
+
+#### 2
+
+Time conceals death. He who lives in time cannot imagine its cessation.
+
+#### 3
+
+The reason why the thought of death does not pro duce the effect which it might is in that we being by our very nature active creatures ought not really even to think of death.
+
+_Kant_
+
+#### 4
+
+The question whether there is a life beyond the grave or not is the question whether time is the product of our method of thinking — limited as it is by our body — or a necessary condition of all that exists.
+
+That time cannot be a necessary condition of all that exists is proven by the fact that we are conscious of some thing within us which is not subject to time. And therefore the question whether there is a life beyond the grave or not is really a question which of the two is real: our idea of time or the consciousness of our life in the present.
+
+#### 5
+
+If a man sees his life in the present, there can not be for him a question of his life in the future.
+
+### III. Death Cannot Terrify a Man Who Lives the Life of the Spirit
+
+#### 1
+
+Death so easily delivers us from all difficulties and misfortunes that those who do not believe in immortality should greatly desire death. But those who believe in im mortality and hope for a new life should still more ardently desire it. But why is it that the majority of people do not desire it? Because the majority of the people live the life of the body and not the life of the spirit.
+
+#### 2
+
+Suffering and death appear only then as ills to a man if he accepts the law of his carnal, animal existence as the law of his life. Only when, though a human being, he descends to the level of the animal, only then suffering and death stare at him from all sides like bogies, and drive him from the only path of life which is open to him, which is subject to reason and finds its expression in love. Suf fering and death are only the violation by man of the law of his life. If man lived a fully spiritual life, there would be neither suffering nor death in store for him.
+
+#### 3
+
+Here is a crowd of men in chains. They are all condemned to death, and every day a few of them are led forth to be killed in the sight of their fellow-convicts. And these wh'j remain watch these executions and await their own turn with dread. Such is life for those who do not realize the meaning of their life. But if man realizes that the spirit of God dwelleth in him and that he can become one with it, there can be no death for such a man and therefore there can be no fear of death for him.
+
+#### 4
+
+To fear death is to fear ghosts, that is to fear some thing which does not exist.
+
+#### 5
+
+I love my garden, I love to read books, I love to caress children. When I die, I am deprived of these things, and therefore I hate to die and I fear death.
+
+It may be that the whole of my life is composed of such worldly desires and their gratification. If this be so I can not do otherwise than fear that which puts a stop to the pleasure derived from the gratification of such desires. But if these desires are transformed within me, being re placed by another desire — to fulfill the will of God, to give myself to Him in the form in which I now exist, and in all sorts of forms which I may assume — then to the extent that my physical desires are replaced by spiritual desires death appears to me no longer terrifying. But when my wordly desires are altogether supplanted by the one desire to give myself to God, nothing but life is left to me, and there is no death.
+
+To substitute that which is eternal for that which is wordly and temporal — this is the path of life, the path to its blessedness.
+
+#### 6
+
+The man who lives for his soul sees in the dissolu tion of the body only a release, and in suffering the nec essary prerequisite of this release. But what is the state of man who builds his life on his body when he sees that the one thing by which he lives, his body, is being destroyed and painfully at that?
+
+#### 7
+
+The animal dies without seeing death and almost without experiencing any fear of it. But why is it given to man to foresee the end that awaits him, and why does it seem to him so terrible, why does it so rend his soul that men have been known to commit suicide for fear of death? I cannot answer why, but I know for what purpose: so that the conscious and rational man might betake his life from the domain of bodily life into that of spiritual life. This not only destroys the fear of death, but renders the expectation of death akin to the feeling of a wanderer who is returning to his home.
+
+#### 8
+
+Life has nothing in common with death. Therefore perhaps there is always born in us the absurd hope which obscures our reason and compels us to doubt the certainty of our knowledge of the inevitableness of death. The life of the body strives to persist in being. Like a parrot in the fable it repeats even when being strangled: "That's nothing."
+
+_Amiel_
+
+#### 9
+
+The body is like unto walls which confine the spirit and obstruct its freedom. The spirit unceasingly strives to sunder these walls, and the whole life of rational man is in pushing these walls apart, in releasing the spirit from the captivity of the body. Death is its final complete release. And therefore death is not only not terrible, but is a joy to man who lives the true life.
+
+#### 10
+
+Man resists death, even as the animal, but thanks to his reason he can always substitute for this resistance not only submission but even assent.
+
+#### 11
+
+If death is terrifying, the cause is in us and not in death. The better a man is the less he fears death. To a man of holiness there is no death.
+
+#### 12
+
+You fear death, but think what would become of you if you were to live forever just as you are?
+
+#### 13
+
+It is as unreasonable to wish for death as to fear it.
+
+#### 14
+
+If a man lives after being cured from mortal illness he is like a truck which has just been pulled out of a mudhole and left on the wrong side of it. It can not escape the mudhole as it must go past it again.
+
+#### 15
+
+Rational life is like unto a man who bears a lantern attached to a long pole. He can never reach the end of the illumined portion of his path, for it always goes on ahead of him. Such is rational life, and only such life knows no death, for the lantern does not cease lighting the path until the last moment, and you follow it to the end as calmly as all through the journey.
+
+### IV. Man Must Live by that Which is Immortal Within Him
+
+#### 1
+
+The son lives permanently in his father's house, but the hired laborer for a season only. Therefore the son will not live like the hired man, but will take care of his father's house nor think only of his daily hire as the hired man will. If a man thinks that his life does not end with death he will live like the son in his father's house. But if life be just what it is in this world, he will live like the hired man seeking to make use of anything he can in this life.
+
+And every man must first solve this question for himself — is he his father's son or only a hired laborer, whether he dies completely or only partly with the dissolution of his body. But if man realizes that though there is something in him that is mortal, there is also something that is immortal, it is clear that he will also pay more heed in life to that which is immortal than to that which is mortal, that he will live not as a hired man, but as a son in his father's house.
+
+#### 2
+
+Only he can believe in a future life who has estab lished in his consciousness a new relationship to the world for which there is no room in this life.
+
+#### 3
+
+Whether life ends with the dissolution of our body is a most important question to which we can not escape devoting thought. According to whether we believe or do not believe in immortality our actions will be either rational or irrational.
+
+Therefore our principal care must be to solve the prob lem whether we do or do not completely die with the disso lution of our flesh, and if not, what is it in us that is im mortal. But if we realize that there is in us something that is immortal, it will be clear to us that in this life we must care more for that which is immortal than for that which is mortal.
+
+The voice that tells us that we are immortal is the voice of God who dwelleth in us.
+
+_Pascal_
+
+#### 4
+
+Experience teaches us that many people familiar with the theory of a life beyond the grave and convinced of its truth nevertheless are given to vices and commit mean actions, inventing devices in order to escape through cunning the consequences of their actions which threaten them in the future. Yet there has hardly ever been a moral man who could reconcile himself to the thought that death ends all and whose noble mode of thinking did not attain a loftier elevation through the hope of future life. There fore it seems to me that it would be more in harmony with human nature and good morals to base the faith in a future life on the sentiments of a noble soul than vice versa to base its noble conduct on the hope of a future life.
+
+_Kant_
+
+#### 5
+
+There is only one thing we know surely — that death awaits us. Like unto a swallow that flies across a room is the life of man. We come no one knows whence, we go no one knows whither. Impenetrable darkness behind us, dense shadows ahead of us. When our time comes what will it mean to us whether we ate delicate foods or not, wore soft raiment or not, left a large estate or none, bore laurels or suffered scorn, were considered learned or ignorant, com pared with the question how we employed the talent en trusted to us by the Master?
+
+What will be the value of all these things when our eyes grow dim and our ears grow dull? In that hour we shall know peace only if we not merely have unceasingly guarded the talent of spiritual life entrusted to out care, but ever increased it to such a degree that the dissolution of the body has lost its terrors.
+
+_Henry George_
+
+#### 6
+
+From the testament of a Mexican ruler:
+
+All things on earth have their limit, the most powerful and the most joyful fall from their majesty and from their joy and turn into dust. The whole earthly sphere is merely a huge grave and there is nothing on its surface that shall not hide in the grave beneath the sod. Waters, rivers and stream strive to their destination and never return to their blessed source. All hurry forward to bury themselves in the depths of the infinite ocean. That which was yesterday is to-day no more. And that which is to-day will be no more to-morrow. The graveyard is full of the dust of those who were animated with life, reigned as kings, ruled nations, presided in assemblies, led armies to battles, conquered new lands, exacted obeisance, were puffed up with vanity, pomp and glory.
+
+But their glory passed like black smoke issuing from a crater and left nothing behind but a mention on the page of the chronicler.
+
+The great, the wise, the brave, the beautiful — where are they alas? They have all mingled with the clay, and that which overtook them will overtake us also: and it will overtake those that shall come after us.
+
+But take courage, all ye famous chiefs and true friends and faithful subjects, let us strive toward that Heaven where all is eternal and where is no corruption nor dissolution.
+
+The darkness is the cradle of the sun, and the splendor of the stars, needs the gloom of the night.
+
+_Tetzkuko Nezagual Copotl_ (About fourteen centuries before the birth of Christ.)
+
+#### 7
+
+Death is inevitable for all that is born even as birth is inevitable for all that is to die. Therefore we do not sorrow because of that which is inevitable. The former state of living creatures is unknown to us, their present state is manifest, and their future state can not be known — why then worry or be agitated? Some people look upon the soul as upon a marvel, others hear and speak about it with astonishment, but no one knows anything certain about it.
+
+The portals of Heaven are opened to you just as far as you need. Free yourself from cares and anxieties and direct your soul to the spiritual. Let your actions be guided by yourself and not by events. Be not of those whose purpose in action is the hope of a reward. Be attentive, do your duty, abandon all thoughts of consequences, so that it be a matter of indifference to you whether things end agreeably to you or disagreeably Bahawad Hita.
+
+#### 8
+
+You would be delivered from sins, and life by en feebling your body and its passions assists you. This always gives you a longing to go ahead, to leave the body, a longing for separateness. Set your life upon deliverance from sins, and your ailments, all your bodily ills and death itself will be blessed.
+
+You are growing feeble and old, your body is dying, but you are gaining spiritual vigor, growth and birth.
+
+#### 9
+
+We are like the passengers upon some gigantic ship, whose master has a passenger list that is unknown to us and contains the destination of the passengers. Un til we are put ashore what else can we do but obey the laws of the ship, live in peace, concord and love with our fellow travelers and thus spend the time allotted to us?
+
+#### 10
+
+Does transformation terrify you? Nothing is accomplished without change. Water can not be heated without a transformation of fuel. Nourishment is impossible without a transformation of food. The whole of earthly existence is a transformation. Understand that the transformation which awaits you has the same meaning, that it also is necessary in the very nature of things. Take heed of only one thing — that you do not commit any act contrary to the true nature of man, but it is always necessary to act in all things in accordance with the indications of nature.
+
+_Marcus Aurelius_
+
+#### 11
+
+This would be a terrible world if suffering did not result in good. It would be a monstrous device designed for the sole purpose of tormenting people physically and spiritually. If this were so, this world that brings forth evil for no good future purpose, but idly and aimlessly, would be inexpressibly immoral. It would seem to entice people designedly for the purpose of inflicting sufferings upon them. It chastises you from birth, it mixes bitterness with every cup of joy and renders death an unceasing threaten ing horror. And of course, if there be no God and immor tality, the loathing of life shown by people would be per fectly intelligible. It is evoked in their hearts by the ex isting order, or rather disorder, by the horrible moral chaos, as we might properly name it.
+
+But if there only is a God and an eternity ahead of us, all things are changed. We discern good in evil, light in darkness and hope dispels despair.
+
+Which of the two suppositions has more verisimili tude: can we admit {hat moral creatures — human beings — could be put into the position of justly cursing the existing order of the world, while a way is open to them that would solve the contradiction? They are bound to curse the world and the day of their birth if there be no God or future life. But, if on the contrary, both exist, life be comes a blessing and the world a place of moral perfecting and of a boundless increase of happiness and holiness.
+
+_Erasmus_
+
+#### 12
+
+Pascal says that if we saw ourselves when dreaming always in one position, but in waking hours in different positions, we should learn to regard dreams as a reality and reality as a dream. This is not quite accurate. Reality differs from dreams in the fact that in life we possess the capacity of acting in accordance with the demands of our morality; but in dreams we know that we frequently commit repulsive and immoral actions that are not characteristic of us and we cannot restrain them. Thus we might rather say that if we did not know a life in which we had more power of gratifying the demands of our moral nature than in our dreams, we should consider dreams as the true life, nor should we doubt that this is not the real life. Now is not all of our life, from the day of our birth until the moment of death, even with its dreams, in its turn a dream vision which we merely mistake for reality and for real life, and merely fail to doubt its reality because we do not know the life in which our freedom to follow the moral demands of our soul would be even greater than that which we enjoy now?
+
+#### 13
+
+If this tiny fragment of life is your all, take heed to make of it all you can.
+
+_Said Ben Hamid_
+
+#### 14
+
+"How can we live not knowing what awaits us?" say some. And yet only when we live without thinking of what awaits us, merely for the manifestation of the love within us, only then the true life begins.
+
+#### 15
+
+It is frequently said: "What is the good of this to me, it is time for me to die." Whatever is no good to us because it is time for us to die, is no good to us anyway and should not be done at any time. But there is one concern which is always of importance, and the nearer we are to death, the more needful it is: it is the concern of our soul. And this concern is to bring betterment into your soul.
+
+#### 16
+
+Love eliminates not only the dread of death, but even the thought of it. An old peasant woman remarked to her daughter how happy she was that she was dying in the summer time. And when the girl asked why, the dying woman answered that she was glad because it is so hard to dig a grave in the winter time and much easier to do so in the summer time. Death was easy for this old woman because to the last dying moment she was thinking of others and not of herself. Do the works of love, and there will be no death for you.
+
+#### 17
+
+Whatever business you undertake, be always prepared to drop it at any moment. Gauge yourself to see whether you can detach yourself. Only then can you do well whatever you are doing.
+
+The expectation of death teaches us so to act.
+
+#### 18
+
+When you came to this world you wept, and all around you rejoiced. So live that when you come to leave the world all around you shall weep, while you alone are smiling.
+
+### V. Being Mindful of Death is a Help to Spiritual Life
+
+#### 1
+
+Since man has given time to meditation it has al ways been recognized that nothing so stimulates moral life as much as being mindful of physical death. But falsely directed medical skill has for its aim the deliverance of people from death, teaching them to hope for an escape from death, to banish all thoughts of physical death and thus depriving them of an important stimulus to moral life.
+
+#### 2
+
+In order to induce yourself to do good give fre quent thought to the fact that you must soon die. Picture to yourself vividly that you are on the eve of death, and you surely will not dissemble, deceive, lie, condemn, censure, feel malice or take the property of others. On the eve of death you perform only the simplest of good deeds: Help, comfort, and show love to others. And such acts are just those that are needed most and give most joy. For this reason it is well always to be mindful of death, particularly if entangled in the affairs of life.
+
+#### 3
+
+When people realize that death has come, they pray and repent of their sins in order to come before God with a pure soul. But do we not daily die a little and are we not every moment on the brink of death? Therefore we ought not to wait for the hour of death, but be ready all the time.
+
+And to be ready for death means to live right.
+
+This is just the reason that death always hangs over men so that they may be at all times prepared to die, and preparing for death may live right.
+
+#### 4
+
+There is nothing more certain than death, nothing more positive than that it will come for us all. Death is more certain than the morrow, than night following day, than winter following summer. Why is it then that we prepare for the night and for the winter time, but do not prepare for death. We must prepare for death. But there is only one way to prepare for death — and that is to live well. The better the life which we live, the less is the fear of death, and the easier is death itself. For the man of holiness there is no death.
+
+#### 5
+
+How soon must we die! And still we can not rid ourselves of dissimulation and passions, still we cling to the old prejudice that the external things of the world have the power to harm us, still we fail to be gentle with all men.
+
+_Marcus Aurelius_
+
+#### 6
+
+If you are in doubt and do not know how to act, picture to yourself that you will have to die before evening, and your doubts are dissolved: you see at once with per fect clearness what is the call of duty and what is mere personal desire.
+
+#### 7
+
+In the sight of death all life becomes solemn, sig nificant and truly fruitful and joyous. In the sight of death we can not shirk the task assigned to us in this life, be cause in the sight of death it is impossible to attend zeal ously to anything else. And when thus engaged, we find life a joy, and are freed from that fear of death which vitiates the life of those people who are not living in the sight of death.
+
+#### 8
+
+Live as though you are about to say farewell to life, and as though whatever time remains to you is an un expected gift.
+
+_Marcus Aurelius_
+
+#### 9
+
+Live for an age and for a day. Labor as though you had an eternity to live, and act towards others as though you were on the brink of death.
+
+#### 10
+
+The consciousness of approaching death teaches men to know how to bring their affairs to completion. And of all human affairs there is one only which is always fully perfected: it is present love.
+
+#### 11
+
+Living oblivious of death and living in the full consciousness of approaching it closer every hour are two entirely distinct modes of existence. The former is akin to the animal, the latter to the divine.
+
+#### 12
+
+In order to live without anguish we must have the hope of joys ahead of us. But what joys can be hoped for if ahead of us is only old age and death? What then should we do? Set the object of our life not in the blessings of the body, but in spiritual blessings, not in acquiring more learning, wealth, glory, but in acquiring more and more goodness, more and more love, more and more freedom from the body — and then old age and death will cease to be bogies and agony, but will become the very thing you long for.
+
+### VI. Dying
+
+#### 1
+
+We understand under death both the dissolution of life and the minutes or hours of the process of dying. The first, the dissolution of life, does not depend upon us, but the second, the process of dying, is in our power. Our dying may be good, or it may be bad. We must strive to die right. This is needful for those who survive.
+
+#### 2
+
+In the dying moments of man the candle by the light of which he turned the leaves in his book of anxieties, illusions, sorrows and ills, flares up more brightly than ever, illuminating all that had previously been obscure, then it flickers awhile, grows dimmer and goes out forever.
+
+#### 3
+
+The dying man understands the living with diffi culty, but you feel that this difficulty of understanding that which is living is not due to the weakening of his mental forces, but to his beginning to comprehend something else, something that the living do not, can not understand, and this absorbs all his powers.
+
+#### 4
+
+It is generally thought that the life of the very aged is of no consequence, that they are merely winding up their days. This is untrue: the most precious activities of life, most needful to themselves and to others, are carried on in the closing years of the very aged. The value of life is in inverse ratio to the square of distance from death. It would be well if all understood this, both the aged and those around them. But most precious of all is the last dying moment.
+
+#### 5
+
+Before reaching old age I endeavored to live right. Having reached old age I endeaver to die right. In order to die right, one must die willingly.
+
+_Seneca_
+
+#### 6
+
+Do I fear death? I think I do not, but with its ap proach, or when meditating upon it, I cannot but experience a feeling of agitation akin to that experienced by the trav eler who nears the spot where his train is to drop from some lofty height into the depths of the sea, or be taken up in a balloon to some dizzy height. The dying man knows that nothing unusual is happening to him, but only that which has happened to millions of others, that he is merely about to change his mode of travel, but he can not avoid a flutter of excitement when nearing the place where the change is to be made.
+
+#### 7
+
+All things in life seem very simple; all things are connected with one another, are of one order and explain one another. But death appears something exceptional, some break in the chain of that which is simple, clear and intel ligible in life. Therefore men for the most part try to give no thought to death. This is a grave error. On the con trary, life must be so harmonized with death as to give to life something of the solemnity and mystery of death, and to death something of the clearness, simplicity and obvi ousness of life.
+
+## After Death
+
+We are asked: "What will be after death?" There is only one answer to this question: The body will decay and turn into dust, this we know for a certainty. But what will become of that which we call our soul? To this we can give no answer, because the question "what will become" relates to time. But the soul is not of time. A soul was not nor mil be. It only is. Without it, nothing would be.
+
+### I. The Death of the Flesh is Not the Termination of Life, But Only a Transformation
+
+#### 1
+
+When we die, only one of two things can happen to us: either that which we regard as our self will pass into another being or we shall cease to be separate beings and shall merge with God. Whichever happens, we have nothing to fear.
+
+#### 2
+
+Death is a change of our body, the greatest, the final change. We have passed through bodily changes con tinuously, and we are forever passing through them: once we were naked fragments of flesh, then babes at the mother's breast, then we grew hair and teeth, then we lost some teeth and acquired others, then our beard grew, still later we turned bald and grey, but we have never feared any of these changes.
+
+Why then do we fear this last final change?
+
+Because no one has told us convincingly what will happen to us after this change. But if a man leaves us to go on a journey and fails to write to us, who can tell how he fares when he finally arrives at his destination? We can merely say that we have no news of him. It is thus also with the dead. We know that they are no longer with us, but we have no reason to think that they have been destroyed or that they are worse off than they were before they left us. Even so the fact that we can not know what will be with us after death or what we were before we had life, proves only that it is not given to us to know these things, and that therefore it is needless for us to know them. We know only one thing — that our life is not in the changes of the body, but in that which dwells in our body, in our soul. And in the soul there can be no beginning or end, because it alone is.
+
+#### 3
+
+"One or the other: either death is complete annihi lation and disappearance of consciousness, or in accordance with tradition only a change and a migration of the soul from one place to another. If death is a complete destruc tion and consciousness and is like unto a deep sleep with out dreams, then death is an indubitable blessing, for we have only to compare a night of such dreamless sleep in our own experience with those other nights and days filled with terror, anxieties and unsatisfied desire which we ex perience in sleep or waking, I am convinced few will find days and nights more blessed than the nights of dream lessness. So that if death be such a sleep, I for one con sider it a blessing. But if death be the passing from this world into another, and it is correctly related that we shall find there those wise men and holy who died before us, can there be a greater blessing than to live there in the company of these beings? I would long to die not once but a hundred times merely to be with them.
+
+"Therefore I think that you, O judges, and all people, should not fear death but remember one thing: for a good man there is no evil either in life or in death."
+
+_Socrates_
+
+#### 4
+
+He who sees the sense of life in striving after spiritual perfection can not believe in death, in the inter ruption of the striving after perfection. That which is on the way to perfection can not be destroyed, it can only be transformed.
+
+#### 5
+
+Death is the cessation of that consciousness of life by which I now live. The consciousness of life ceases, this I see in the case of those who die. But what becomes of that which was conscious? I do not know, I can not know.
+
+#### 6
+
+People fear death and desire to live as long as pos sible. But if death be a misfortune, is it not the same to die in thirty as in three hundred years? What joy can there be for the man condemned to die, if his execution is put off for thirty days, while his comrades are put to death in three days. A life that must terminate with death would be death itself.
+
+_Scovoroda_
+
+#### 7
+
+It is the feeling of everyone that he is not a mere nothing called into life at a certain moment by some other thing. Therefore the universal confidence that death may terminate life, but not by any means existence.
+
+_Schopenhauer_
+
+#### 8
+
+Aged men lose the remembrance of recent events. But memory is that which binds all the things which occur in time into one "I." And in the case of the aged man this earthly "I" is done with, and a new "I" has com menced.
+
+#### 9
+
+The more profoundly conscious you are of life, the less you believe in its destruction in death.
+
+#### 10
+
+I do not believe in any of the existing religions, and for this reason I can not be suspected of blindly following any tradition or the influences of education. But all through life I have thought as deeply as I could on the subject of the law of our life. I searched into it in the history of mankind and in my own consciousness and I have come to the unshakable conviction that there is no death; that life can not be other than eternal; that infinite perfection is the law of life, that every faculty, every thought, every striving implanted in me must have its practical development; that we have ideas and tendencies which far exceed the possibilities of earthly life; that the very fact that we possess them and can not trace their source to our feelings, proves that they proceed in us from a domain beyond this earth and may be realized only be yond it; that nothing perishes on earth but the appear ance, and to think that we die because our body is dying is to think that the workman is dead because his tools have worn out.
+
+_Mazzini_
+
+#### 11
+
+If the hope of immortality be a delusion it is clear who are those who are deluded. Not those vulgar and darkened minds who had never approached this majestic thought, not the sleepy and frivolous people who are content with a sensual dream in this life and with the dream of oblivion in the future life, not those lovers of self, narrow of conscience and petty of thought and still more petty in love, no, not they. They would be right, and the gain would be theirs. The deluded would be all those great men and holy who have been and are venerated of all men. The deluded would be all those who have lived for something better than their own happiness and who have laid down their life to make others happy.
+
+All these men deluded! Then even Christ must have suffered in vain yielding up his spirit to 'an imaginary father, and thought in vain that he manifested him in his life. The tragedy of Golgotha would then have been only a mistake, and the truth in those days would have been on the side of those who then mocked him and cried for his death, and now on the side of those who are perfectly indifferent to that accord with human nature which is represented by this alleged piece of fiction. Whom are we to worship, whom shall we trust if the inspiration of the highest minds be a mere jumble of cunningly devised fables?
+
+_Parker_
+
+### II. The Nature of the Change in Existence Which Occurs with the Death of the Body is Unfathomable to the Mind of Man
+
+#### 1
+
+We frequently endeavor to picture death as a pass ing into something, but such an endeavor leads us nowhere. It is just as impossible to picture death as to picture God. All that we can know of death is that death, even as ev erything else that proceeds from God, is a blessing.
+
+#### 2
+
+Some ask: What will become of the soul after death? We do not know, we can not know. Only one thing is certain, that if you are going anywhere, you must have proceeded from somewhere. Even so in life. If you came into life, you must have proceeded from some where. From wherever or whomever you have proceeded, there and to him you will return.
+
+#### 3
+
+I do not remember anything of myself before my birth, and therefore I think that I shall not remember after death anything of my present life. If there will be a life after death, it will be such as I am unable to picture to myself.
+
+#### 4
+
+The entire life of man is a series of changes in comprehensible to an observer, yet perceptible to him. But the beginning of these changes as culminating in birth, and the end of these changes as culminating in death, are not even perceptible to observation.
+
+#### 5
+
+Only one thing is important for me: to know what God would have me do. And this is clearly manifested not only in all religions but also in my conscience, and therefore my concern is to learn to fulfill it all and to direct all my powers towards that end, knowing full well that if I devote all my strength to the fulfillment of the Master's will, he will not leave me, and that only that will happen to me which ought, and that it will be well with me.
+
+#### 6
+
+No one knows what death is, yet all fear it, re garding it as the direst evil, although it may be the great est blessing.
+
+_Plato_
+
+#### 7
+
+If we believe that all that has happened to us in our life has happened for our blessing, we can not fail to believe that that which happens to us when we die will also redound to our blessing.
+
+#### 8
+
+No one can boast that he knows that there is a God and a future life. I can not say that I know beyond doubt that there is a God and that there is immortality, but I must say that I feel both that there is a God and that my "I" is immortal. This means that the faith in God and another world is so closely knit with my nature that this faith can not be severed from me.
+
+_Kant_
+
+#### 9
+
+People ask: "What will be after death?" The answer must be this: if you truly say in your heart, and not merely with your tongue, "Thy will be done on earth as it is in heaven," that is in this temporal life as well as in life beyond time, and know that His will is love, you need give no thought to what will be after death.
+
+#### 10
+
+The dying Christ cried out: "Father, into Thy hands I commend my spirit." If He utters these words not with his tongue merely, but with his whole heart, what can man need more? If my spirit returns to Him from whom it has proceeded, nothing can happen to my spirit but that which is best.
+
+### III. Death— A Release
+
+#### 1
+
+Death is the destruction of the vessel in which our spirit was contained. We must not confuse the vessel with that which is put into it.
+
+#### 2
+
+When we are born, our souls are placed into the coffin of our body. This coffin — our body — is gradually destroyed, and our soul is more and more freed. But when the body dies, in accordance with the will of Him who joined body and soul, the soul attainfits complete release.
+
+_Heraclitus_
+
+#### 3
+
+Even as the tallow of the candle melts from the fire, so the life of the body is destroyed through the life of the soul. The body burns in the fire of the spirit and is entirely consumed when death comes. Death destroys the body even as the builders take down the scaffolding when the structure is completed.
+
+The structure is the life of the spirit, the scaffolding is the body. And he who has reared up the structure of his spiritual life rejoices, when dying, because the scaffold ing of his bodily life is removed.
+
+#### 4
+
+We think that life ends with death because we account as life only the period from birth until death. Thus to think of life is to think of a stream that the stream is not the water therein but consists of the shores.
+
+#### 5
+
+Everything in the world grows, blooms and returns to its root. To return to the root is rest in accord ance with nature. That which is in accordance with nature is eternal; therefore the dissolution of the body hides no perils.
+
+_Lao-Tse_
+
+#### 6
+
+When in the last dying moments the spiritual prin ciple leaves the body we know for a certainty the body is being abandoned by that which has animated it and ceas ing to be a thing separate from the material world com bined with it. But whether the spiritual principle passes into a new form of life, with new limitations, or unites with that timeless and spaceless principle which gave it life, we do not know, we can not know.
+
+#### 7
+
+He who has striven all his life to subjugate his passions, being hindered therein by his body, can not but rejoice to be released from it. And death is but a release. The process of self-perfecting of which we have spoken so much consists in the striving to dissociate as far as possi ble the soul from the body, and to teach it to collect itself and to concentrate within itself and independently of the body; and death gives this very release. Is it not strange that he who has been preparing all through his life to live as free as possible from the dominion of the body should be discontented at the very moment when this deliverance is about to be accomplished? Therefore, as much as I regret to leave you and to cause you grief, I can not but welcome death as the realization of all that I have striven for all my life.
+
+_Socrates_ (Farewell Address to His Disciples)
+
+#### 8
+
+Only he does not believe in immortality who has never truly thought of life.
+
+If man be only a corporal being then death is the end of something so insignificant that it is not worth while to regret it. But if man be a spiritual creature, and the soul live in the body only for a season, then death is merely a change.
+
+#### 9
+
+We fear death only because we mistake for our true self the mere instrument with which we are wont to labor — our body. But if we only accustom ourselves to regard that as our self which directs the instrument, namely our spirit, then there can be no fear? He who regards his body as an instrument given him to work with, ex periences at the moment of death only the consciousness of awkwardness which the workingman experiences when his accustomed tool is taken from him while the new one has not yet been given him.
+
+#### 10
+
+Man observes how plants and animals spring into life, grow, strengthen and multiply, then weaken, deteriorate, grow old and die.
+
+He observes the same process in other people, and he knows that the same will happen in his own body; he knows that it will grow old, deteriorate and die even as all things that are born and live in this world.
+
+But besides these things which the man observes in himself and other creatures, he also knows something within himself that does not deteriorate and grow old, but grows stronger and better the longer it lives; every man is conscious of his own soul within him which can not fare as does his body. Therefore death is a terror only to him who lives with the body and not with the soul.
+
+#### 11
+
+A wise man who affirmed the immortality of the soul was asked: "But how about the end of the world?" He replied: "In order that my soul may live, no world is required."
+
+#### 12
+
+The soul does not dwell in the body as though it were at home, but as a wanderer in a strange refuge.
+
+_Hindu wisdom_
+
+#### 13
+
+The life of man may be pictured thus: progress along a corridor or a cylinder, first free and easy, then due to self-expansion more and more crowded and difficult; as he moves onward he sees in the distance, but gradually coming nearer, the brightness of the free space beyond, and he observes those who precede him disappearing into the beyond.
+
+How then feeling all the strain and pressure and im pediment of his progress should he not long to reach the open space ahead of him? And how then should he, in stead of desiring it, fear to approach this freedom?
+
+#### 14
+
+The more spiritual our life becomes, the more we believe in immortality. As our nature departs from the uncouthness of the animal, our very doubts are gradually destroyed.
+
+The veil is lifted from the future, the darkness is dissipated, and we feel our immorality right here.
+
+_Martineau_
+
+#### 15
+
+He who has a false view of life has also a false view of death.
+
+#### 16
+
+He who knows others is well-informed, he who knows himself is enlightened.
+
+He who overcomes others is strong, he who over comes himself is powerful. But he who dying knows that he is not destroyed is eternal.
+
+_Lao-Tse_
+
+### IV. Birth and Death are the Boundaries Beyond Which Our Life is Unknown to Us
+
+#### 1
+
+Birth and death are the boundaries in two direc tions. Beyond either there is an equal mystery.
+
+#### 2
+
+Death is the same as birth. With his birth the infant enters into a new world, begins an entirely different life from the one in his mother's womb. If the infant could tell us what he had experienced while departing from his former existence, he would relate an experience similar to that of the man who is passing out of life.
+
+#### 3
+
+I can not rid myself of the idea that I had died be fore I was born, and that in death I shall again return into the same state. To die and to come back to life with the memory of former existence we call a swoon; to awaken with new organs which must be developed anew we call birth.
+
+_Lichtenberg_
+
+#### 4
+
+We can look upon life as upon a dream, and upon death as upon an awakening.
+
+#### 5
+
+When people die — where do they go? Probably there whence people come when they are born. People come from God, the Father of our life; all life has ever been, is now, and ever will be from Him. And all men return to Him likewise. So that in death man merely re turns to Him from whom he issued. The man leaves his home, labors, rests, eats and amuses himself, labors again, and when he feels tired returns home.
+
+Even so with human life: man proceeds from God, labors, suffers, is comforted, rejoices and rests, and after all his vicissitudes, returns home whence he came.
+
+#### 6
+
+Did we not experience one resurrection from a state wherein we had known less of the present than in the present we know of the future? As our former state is in relation to the present, so is the relation of our present state to the future.
+
+_Lichtenberg_
+
+#### 7
+
+You came into this world not knowing how, but you know that you came into this world the possessor of that specific "I" which you are; then you walked along the path of life, and suddenly midway, half in joy, half in fear, you balk and refuse to budge because you can not see what is "there." But you had not seen even this world into which you came, and still you came. You entered through the entrance gate, but refuse to pass through the exit gate. All your life consisted of going onward and onward in bodily life. And you marched on, hurriedly at times, and now you grieve because that is happening which you have been doing right along. You are appalled by the dreadful change which will take place in your body at death. But as great a change occurred to you also when you were born, and it showed no ill effects — in fact it turned out so well that you hate to part from your state.
+
+### V. Death Frees the Soul from the Confines of Personality
+
+#### 1
+
+Death is a release from the onesidedness of per sonality.
+
+To this doubtless is due the appearance of peace and serenity on the faces of the deceased. Calm and peaceful is as a rule the death of a good man. But to die readily, willingly, joyfully is the prerogative of him who has re nounced himself, of him who has renounced the life of per sonality, who abnegates it. For only such a man really and not seemingly desires death and therefore neither requires nor demands a further existence of his personality.
+
+_Schopenhauer_
+
+#### 2
+
+The consciousness of all that is confined within the body of the individual strives to expand its boundaries. Herein is the first half of human life. Man in the first half of his life manifests an increasing love of objects and persons; that is exceeding his own boundaries, he trans fers his consciousness to other beings.
+
+But love as he may, he can not leave his boundaries and only in death sees the possibility of their obliteration. How then should he in view of this fear death? The process is somewhat similar to that of the metamorphosis of a butterfly from a caterpillar. We are as caterpillars; we are first born, then fall into the sleep of a chrysalis. But we know ourselves as butterflies in the life to come.
+
+#### 3
+
+Our body confines within its boundaries that divine principle which we call our soul. And these boundaries, like a vessel giving form to the liquid or the gas contained therein, gives this divine principle its outward form. When the vessel is broken that which is contained therein ceases to have the form which it had and escapes. Does it combine with other substances? Does it receive a new form? We know nothing of that, but we know for a cer tainty that it loses the form which it had in its former con finement, because that which confined it has been destroyed. This we know, but we can not know what happens to that which has been confined. We only know that the soul after death becomes something else, but what — this we have no means in the present life of judging.
+
+#### 4
+
+Some say: "True immortality is only such wherein my personality is retained." But my personality is the very thing that is most loathsome to me in this world, and from which all through life I have sought to be delivered.
+
+#### 5
+
+If life is a dream, and death an awakening, then the fact that I see myself separated from everything in matter is a dream from which I hope to awake in dying.
+
+#### 6
+
+It is only then a joy to die when you weary of your separateness from the world, when you realize the whole horror of separateness and the joy if not of uniting with all, then at least of escape from the prison house of sep arateness in this life, where you only rarely commune with others through the passing sparks of love.
+
+One so longs to say: "Enough of this cage. Give me another relationship to the world, more appropriate to my soul. And I know that death will give it to me. And yet they try to comfort me with the assurance that even there I shall remain a personality."
+
+#### 7
+
+Beneath my feet is solid ground, frozen with the cold of the winter, around me are trees of gigantic growth, above me an overcast sky; I feel my body; thoughts surge through my mind, but I know, I feel in every fibre of my being that all of these things — the solid and frozen ground, the trees and the sky, my body and my thoughts — are but accidents, that they are all the product of my five senses, of my imagination — a world created by myself, and all of this is because I form this and not a different particle of the world, because such is the form of my separateness from the world. I know that I have but to die, and all of these things will not vanish but change their form, like a change of scene in a theatre, where out of bushes and stones palaces and towers are formed. Such will be the trans formation wrought in me by death, if I only am not totally destroyed, but pass into another being differently separated from the world. And then the whole world, remaining unchanged for those who are left to live in it, will yet be changed for me. The whole world is such and not different because I consider myself to be just such a creature and not a different one, just so separated from the world and not differently. And there is no end to the number of forms of separation of creatures from the world.
+
+### VI. Death Reveals that Which Had Been Unfathomable
+
+#### 1
+
+The longer a man lives, the more life reveals itself to him. That which had been unknown, becomes known. And so until death. But in death all is revealed that man can know.
+
+#### 2
+
+Something reveals itself to the dying man in the moment of death. "Is that it?" This is the expression which we nearly always seem to read in the features of the dying man. But we who remain can not see that which has been revealed to him. It will be revealed to us also when the time comes.
+
+#### 3
+
+All things are revealed, while you live, in the man ner of a uniform ascent to higher and higher levels by reg ular steps. But when death comes, that which was for merly revealed suddenly ceased to reveal itself, or he who received the revelations ceases to see that which was for merely revealed, because he sees something new, something entirely different.
+
+#### 4
+
+That which is dying is in part already a partaker of eternity. It seems as though the dying man speaks to us from beyond the tomb.
+
+That which he says seems to us a commandment. We picture him almost as a prophet. It is evident that for him who feels life ebbing away and the tomb opening up before him the time of portentous speech has arrived. The essence of his nature must manifest itself. The divine principle that is within him can no longer remain in hiding.
+
+_Amiel_
+
+#### 5
+
+All misfortunes reveal to us that divine, immortal, self-contained principle which forms the basis of our life. But the paramount misfortune — as people judge it to be — death — reveals to us fully our true "I."
+
+## Life is Blessedness
+
+The life of man and its blessedness consist in the ever closer union of the soul, which is through its body separated from other souls and from God, with that from which it is separated. This union is effected by the soul as it manifests itself through love and ever more frees itself from the body. And therefore if man realizes that in this release of the soul from the body lies his life and its blessedness, his life in spite of all misfortunes, sufferings or ailments can not be anything else but a state of un interrupted blessedness.
+
+### I. Life is the Highest Blessing Attainable to Man
+
+#### 1
+
+Life, whatever its course, is a blessing than which there is no higher. If we say at all that life is an evil we only say so in comparison with another, an imaginary and better life. But we know no other or better life, nor can we know it, and therefore life, whatever its course, is the highest blessing for us.
+
+#### 2
+
+We frequently despise the blessing of this life, anticipating a higher blessing somewhere else. But no such higher blessing can exist anywhere, for in our life we have been granted so great a blessing — the blessing of life — than which nothing is, nothing can be higher.
+
+#### 3
+
+This world is no mockery, nor a vale of sorrows or transition into a better, eternal world, but this world, the world wherein we now live, is one of those eternal worlds which is beautiful and full of joy, and which we not only can, but must through our efforts make still more beautiful and filled with joy for the sake of those who live with us and for the sake of all those who will live after us.
+
+#### 4
+
+To make every moment of life the best possible, no matter whether it fall to our share from either hand of fate, dispensing favor or dispensing disfavor, therein is the art of living and the true superiority of a rational being.
+
+_Lichtenberg_
+
+#### 5
+
+Man is unhappy, because he does not know that he is happy.
+
+_Dostoyevsky_
+
+#### 6
+
+It can not be said that serving God comprised the whole destination of man. The destination of man is always and always must be his blessedness. But as God desired to give blessedness to people, they must, in striv ing for their blessedness, do that which God desires of them, and therefore obey His will.
+
+### II. True Blessedness is in the Present Life and Not in the Life Beyond the Tomb
+
+#### 1
+
+According to the false teaching the life in this world is an evil, but blessedness is attained only in the life to come.
+
+According to the true Christian teaching, the aim of life is blessedness, and this blessedness is attained here.
+
+True blessedness is always in our hands. Like a shadow it follows in the wake of a good life.
+
+#### 2
+
+If paradise is not in your own self you will never enter it.
+
+_Angelus_
+
+#### 3
+
+Do not believe that this life is but a transition into another world, and our happiness lies only in that. This is untrue. We should be happy in this world right here.
+
+And in order that we may be happy here in this world, we must only live as He desires who sent us. Nor must you say that in order that you may live well, everybody else should live well, should live according to God. This is wrong, live yourself according to God, make efforts of your own, and you will be happy, and others will also be better off rather than worse off.
+
+#### 4
+
+The most common and the most harmful delusion among men is to think that they can not in this life attain all the blessedness which they desire.
+
+#### 5
+
+Those who maintain that this world is a vale of sorrows, a place of trial, etc., and the other world is a world of blessedness, might as well maintain that the whole infinite world of God is beautiful, and that life in the whole world of God is beautiful, with the sole exception of the one spot and the one period of time, namely where and when we now live. That would be a strange phenom enon. Is this anything else but an obvious misunderstand ing of the meaning and the calling of one's life?
+
+#### 6
+
+Live the true life and you will have many ad versaries, but even your adversaries will love you. Life will bring you many misfortunes, but you will be happy even in them and will bless life and cause others to bless it.
+
+_Dostoyevsky_
+
+#### 7
+
+How odd and ridiculous to plead with God! Not begging of Him is needful, but to fulfill His law, to be as He is. The only rational attitude towards God is to be thankful to Him for the blessing which He bestowed upon me by animating me with His breath.
+
+A master has placed his laborers into such a state that fulfilling the things he showed them they attain the highest blessing which their mind can conceive (the bless ing of spiritual joy), and yet they beg things of Him.
+
+By begging they show that they do not do that which was assigned to them.
+
+### III. True Blessedness You Can Find Only Within Yourself
+
+#### 1
+
+God entered into, me and through me seeks His blessedness. What then can be the blessedness of God? Only to be Himself.
+
+_Angelus_
+
+#### 2
+
+A wise man remarked: I have covered the earth in my travels seeking blessedness. I searched for it day and night without ceasing. Once when I had despaired of finding this blessedness an inner voice told me: bless edness is in thyself. I obeyed the voice and found true and unchangeable blessedness.
+
+#### 3
+
+What other blessedness would you, if God and the whole world be within you?
+
+_Angelus_
+
+#### 4
+
+Happy are the people if they call nothing their own but their soul. Happy are they even if they live among covetous and evil and hateful people, for none can take their happiness away from them.
+
+_Buddhist teaching_
+
+#### 5
+
+The better the people live the less they complain about others. And the worse a man lives the less content is he with himself and with others.
+
+#### 6
+
+The wise man seeks all within himself, the mad man all in others.
+
+_Confucius_
+
+### IV. The True Life is the Spiritual Life
+
+#### 1
+
+That which we call happiness or unhappiness of our animal "I" is outside of our will; but the blessedness of our spiritual "I" depends only upon us, on our obedi ence to God.
+
+#### 2
+
+All that the people regard as misfortunes or ills is due to the fact that they consider only their material personality as truly existing: John, Peter, Mary, Natalie; whereas the material personality represents merely the boundaries in which has manifested itself the really exist ing eternal All. This is a delusion in the nature of the puzzle pictures in which figures are traced out of nothing between the contours of tress and branches. Man may regard that which is bounded by the body as himself or that All which in him is not bounded by the body. In the first instance he is a slave, powerless and subject to all sorts of misfortunes; in the second case he is free, all powerful and knows no ills.
+
+#### 3
+
+He who set the aim of his life on releasing his spiritual "I" from the body can not be discontented, be cause that which he desires is always accomplished.
+
+#### 4
+
+The life of man, full of physical sufferings, liable to be interrupted at any instant, this life to avoid being the most cruel of mockeries must have such a significance that neither sufferings nor its duration — short or long — could affect the aim of life.
+
+And such a significance pertains to human life. This significance is the ever increasing consciousness of God in self.
+
+#### 5
+
+"My yoke is blessed." Men don a yoke that is un suited to them and attempt to pull a load beyond their strength. An unsuitable yoke and an excessive load, — such is the life looking to the happiness of the body or to the material blessings for others. True blessedness is in the increasing consciousness of God in self. Only such a yoke is made to fit the strength of men and it is the one Jesus speaks of. Try and see how pleasant and easy it is. He who would know whether I speak the truth let him try and do as I say, said Jesus.
+
+#### 6
+
+Human life is a never ceasing reunion of the spirit ual which is isolated by the body with that with which it is conscious of oneness. Whether man understands it or not, whether he wills it or not, this reunion is being un ceasingly accomplished .through the condition which we call human life. The difference between the people who do not understand their calling and do not wish to fulfill it, and those who understand it and wish to live in accord ance with it, is in this: the life of those who do not under stand it is a continuous suffering, but the life of those who understand their calling and are fulfilling it, is unceasing and increasing blessedness.
+
+The former are like stubborn animals whom the master must drag by a rope attached to the neck into that refuge where the animal will find food and shelter. It is futile on the part of the animal to struggle and to choke itself in its efforts to resist the master: it will be taken to the place to which all must come.
+
+And the latter are like the animal which having com prehended the master's will goes willingly and gladly where the master leads, knowing that nothing but good can re sult from obeying the will of the master.
+
+#### 7
+
+Nothing proves so patently that the business' of life is to perfect oneself as the fact that whatever you may crave besides perfecting yourself, be your desire ever so fully satisfied, the moment it is satisfied, the fascination of the desire is immediately destroyed.
+
+Only one thing never loses its joyful purport: the consciousness of your striving towards perfection.
+
+This incessant self-perfecting yields true, unceasing and ever increasing joy. Every step forward along this path carries with it its own reward, and this reward is received immediately. Nor can anything snatch it away.
+
+#### 8
+
+He who has set his life on spiritual perfecting of self, can not be discontented, for that which he desires, is always in his power.
+
+_Pascal_
+
+#### 9
+
+To be blessed, to have eternal life, to abide in God, to be saved — it all amounts to the same thing: it is the solution of the problem of life. And this blessing grows, man feels an ever stronger and deeper mastery of heavenly joy. And this blessing knows no limits, for it is liberty, omnipotence and the fulness of the realization of all desires.
+
+_Amiel_
+
+### V. Wherein is True Blessedness?
+
+#### 1
+
+There are few genuine blessings. Only that is a genuine blessing and good which is a blessing and good for all.
+
+Therefore it is needful to desire only that which is in accord with the common good.
+
+He who directs his activity towards such an aim will acquire blessing for himself.
+
+_Marcus Aurelius_
+
+#### 2
+
+In the circumstances of people there is a combina tion of good and evil, but in their aims there is no such mixture: the aim can be evil — in the fulfilment of the will of one's animal nature, or good — in the fulfilment of the will of God. Let man yield to the first aim, and he can not but be unhappy; let him yield to the second, and there can be no unhappiness for him — all things are blessed.
+
+#### 3
+
+No one can do genuine good to another. Genuine good a man can do only to himself. And genuine good is only in this: living for the soul and not for the body.
+
+#### 4
+
+To do good — this is one occupation of which it may be said that it will assuredly benefit us.
+
+#### 5
+
+A man asks aid of people or of God. But no one can help him, unless it be himself, for nothing but his good life can help him. And only he alone can do it.
+
+#### 6
+
+They say that he who is doing good needs no re compense. True enough when you think of a recompense outside of yourself, of a future and not of an immediate reward. But without obtaining a recompense, without the good yielding joy to man, man simply could not accomplish any good. It is only essential to understand what con stitutes a true recompense. True recompense is neither in external things nor in the future, but in the inner things and in the present: in the betterment of the soul. This is both the recompense and the incentive of doing good.
+
+#### 7
+
+One man of holy life prayed thus to God: "O Lord, be merciful to the wicked, for to the good Thou hast shown mercy already. They are blest in that they are good."
+
+### VI. In Love is Blessedness
+
+#### 1
+
+In order to be truly happy only one thing is need ful: love — to love all, the good and the bad. Love un ceasingly, and unceasingly you will be happy.
+
+#### 2
+
+We do not know, we can not know what we are living for. And therefore it would be impossible for us to know what to do and what not to do, if it were not for our longing for blessedness. This longing unerringly points out to us what to do, if we only view our life not as an animal life but as a soul dwelling in a body. And this very blessedness for which our soul longs is given us in love.
+
+#### 3
+
+No one has ever wearied of doing good unto him self. But the supreme good is to do that which the soul desires, and the soul desires only one thing: to love and to be loved. Make the object of your life to increase this love, and you will find that your happiness will be always in your power.
+
+#### 4
+
+If there is a God of goodness and if He created the world, He must have created it so as to insure the wel fare of all, consequently including also the welfare of us — human beings.
+
+And if there be no God, let us of our own accord live so as to insure our well-being. And in order that it be well with us, we must love one another, there must be love. And God being love, this brings us back again to God.
+
+#### 5
+
+My life is not my own, and therefore my own happiness can not be its aim; only that can be its aim which He desires who sent me into life. And He desires that all manifest love towards all others, which is the very thing wherein consists happiness, both my happiness and the happiness of all.
+
+#### 6
+
+Man from the day of his birth to the moment of his death craves his own good, and that which he craves is granted him if he but seek it there where it is: in the love for God and for others.
+
+#### 7
+
+Some say: "Why love disagreeable people?" Be cause there is joy therein. Try it and see whether it be true or not.
+
+#### 8
+
+Nothing but death before us, nothing but duty in the present. How seemingly depressing and dreadful! Yet if you but seek the object of your life only in this: to strive for ever greater immediate communion in love with others and with God, that which had seemed dreadful be comes supreme and inviolable blessedness.
+
+### VII. The More a Man Lives for His Body, the More Surely He Misses True Blessedness
+
+#### 1
+
+Some people seek happiness in power, others in thirst for knowledge — in science, still others in pleasures. These three ambitions have given birth to three distinct schools of thought, and all philosophers have always fol lowed one of these three trends. But those who came closest to true philosophy realized that universal happi ness— the goal of universal striving — must not be contained in any particular things which may be possessed by some few only, and which after being divided rather grieve their possessors because of the portion which has been denied them, than yield them joy in the portion which they possess. They realized that true blessedness must be such that all may possess it at one and the same time, without lack and without envy, and such as none may lose against their will. And such happiness exists: it is love.
+
+_Pascal_
+
+#### 2
+
+Why art thou scurrying hither and thither, O wretched man? Thou seekest happiness and hurriest some where, while happiness is in thy own self. Why seek for it at the door of others? If happiness be not within thee, thou wilt find it nowhere else. Happiness is within thee, in that thou canst love all, love all not because of anything, not for the sake of anything, but in order to live the life of all people, instead of living merely thine own. To seek happiness in the world and not to avail thyself of the hap piness that dwells in thy soul is the same as to seek water in some distant muddy puddle, while by thy side a healing spring of pure water spurts from the mountain side.
+
+_Angelus_
+
+#### 3
+
+If you long for true happiness, do not seek it in distant lands, in riches or in honors, do not importune others, do not cringe before them or contend with them in order to attain happiness. By such means you might attain properties, or rank and all sorts of unnecessary things, but true happiness which is needful to all can not be bought, can not be attained by importuning, but is given freely. Know that all that which you can not take freely is not yours, is superfluous to you. That which you need you can always take freely — by your own good life.
+
+Yes, indeed, happiness does not depend either upon heaven or upon earth, but solely upon yourselves.
+
+There is but one blessedness in the world, and that alone we need. What is this blessedness? A life of love. And to attain this blessedness is easy.
+
+_Scovoroda_
+
+#### 4
+
+Thanks be to God because He has made so easy the things that are needful to men, and so difficult the things that are needless. That which men need most of all is hap piness, and to be happy is the easiest thing of all. Thanks be to God.
+
+The kingdom of God is within us. Happiness dwells in our heart, if it is filled with love. How would it be if that happiness which all men need were the gift of some particular place, a period of time, of some position, of health or of physical strength? How would it be if hap piness were to be found alone in America or in Jerusalem? In the times of Solomon? Or in a royal palace? In wealth, in honors, in a desert? In science, in health or in beauty?
+
+Could the people live all in America or in Jerusalem?
+
+Could all live in the same period? If happiness were in riches, in health or in beauty, how unhappy would be the lot of all the poor, the aged, the sick and the homely. Could God deprive all these of happiness? No, thanks be to God. He has made the difficult things superfluous. He has ar ranged it so that there is no happiness in riches, or in hon ors, or in beauty of the body. Happiness is in one thing only — in the goodness of life, and that is in every man's power.
+
+#### 5
+
+Men pray to God to help them in the things that are outside of them, and God is always ready to help them in the things that are within them. Or else they would have Him help them as they desire, and not as He would help them.
+
+#### 6
+
+To importune God for blessings in this ilfe is the same as to sit by the side of a spring of water and to pray to it for deliverance from thirst. Bend down and drink. The fulness of blessings has been granted us. We must only know how to make use of it.
+
+#### 7
+
+If you will reckon that a blessing which is outside of yourself, you will be unhappy always. Realize that a blessing is only that which is in your power, and no one will be able to rob you of your happiness.
+
+### VIII. Man is Only then Unconscious of the Blessedness of Life if He Fails to Fulfil the Law of Life
+
+#### 1
+
+If you ask: "Why does evil exist?" I answer with the question: "Why does life exist?" The evil exists so that there may be life. Life is manifested in emancipa tion from evil.
+
+#### 2
+
+If life does not appear to you a great and unmerited joy it is only because your reason is wrongly directed.
+
+#### 3
+
+If the life of the people is not full of joy, it is be cause they fail to do that which is needful in order to make life a constant joy.
+
+#### 4
+
+If we say that our life is not blessedness, we in evitably allow it to be understood thereby that we know of a higher blessing than life. And yet we do not know, nor in deed can we know any higher blessing than life. And therefore if life does not appear to us to be a blessing, it is not life which is in any way to blame for it, but we our selves.
+
+#### 5
+
+If any man says that though doing good he feels unhappy, it merely proves that what he considers good is not good.
+
+#### 6
+
+Know and remember that if a man is unhappy, it is his own fault. People are only then unhappy when they desire something that they can not have; but they are happy then when they desire something that they can have.
+
+What is it that the people can not always have though they desire it, and what is it that they can always have when they desire it?
+
+People can not always have, though they desire them, the things that are not in their power, things that do not belong to them, things that others can take away from them — all these things are not in the power of men. But only those things are in the power of men which neither any man nor anything in the world can interfere with.
+
+Among the first are all worldly boons — riches, honors and health. And the other thing is our soul, our spiritual perfecting. And just those things are in our power which are more needful than anything else for our happiness, be cause no worldly boons can give true happiness but merely always deceive. But true happiness comes from our efforts to come closer to spiritual perfection, and these efforts are always in our power.
+
+We have been treated as a kindly father treats his children: Only those things have been withheld from us which can not give us happiness. But all things that are needful to us have been granted us.
+
+_Epictetus_
+
+#### 7
+
+A man spoils his stomach and complains of his dinner. Even so with the people who are dissatisfied with life.
+
+We have no right to be dissatisfied with this life. If it seems to us that we are dissatisfied with it, it merely proves that we have good grounds to be dissatisfied with ourselves.
+
+#### 8
+
+A man loses his way and comes to a river which obstructs his path, and he complains that he who sent him on his journey had deceived him; he wrings his hands in despair, leaps into the river cursing him that sent him and is destroyed, but he refuses to understand that on the road from which he had strayed there were bridges and all con veniences for traveling. Even so with the people who stray from the one true path of life. They are dissatisfied with life and frequently destroy themselves, because having strayed from the right path they refuse to acknowledge their mistake.
+
+#### 9
+
+Do not think that failure to comprehend the mean ing of human life and being perplexed thereby is either lofty or tragical. Such perplexity is akin to the perplexity of a man who drops into a company of people engaged in the reading of a good book. The perplexity of this man who neither will listen nor understand that which is being read but insists on annoying with his fidgeting people who are worthily engaged has nothing lofty or tragical in it, but is ridiculous, absurd and pitiable.
+
+#### 10
+
+A man who is unused to luxury and accidentally finds himself in luxurious surroundings may pretend in order to raise himself in the estimation of others that he is so accustomed to luxury as not only not to marvel at it, but even treat it with disdain: even so a man who pretends to have a lofty view of the world and to disdain the joys of life, acts as though he is bored with life and can imagine something far superior to it.
+
+#### 11
+
+There was once a benefactor who sought to do as much good to the people as possible and began to think how he could arrange it so as not to offend anyone and yet to benefit all. To give things to people direct would make it difficult to judge what to give to this and that one, who is worthy above his fellow, and how to even up things. Those who got less would complain, saying: "Why did you give to him, and not to me?"
+
+And he conceived the idea of establishing an inn in some place where multitudes of people were wont to con gregate. And in this inn he gathered all sorts of things that pertained to human necessity and pleasure. He ar ranged comfortable rooms, with convenient fireplaces, fuel, light, spacious barns full of all sorts of grain, vaults filled with vegetables, various fruits and beverages, beds and bedding, raiment and linen and footwear, enough for a vast multitude. This did the benefactor and departed, wait ing to see what would happen.
+
+And there came to the inn sundry good people who ate and drank and lodged, some a day or two, others a week or more, taking now a little raiment, or footwear, as they had need. And on departing they would bring all things in order just as they had found them, so that other strang ers might use the conveniences, and passing on they only knew enough to give thanks to their unknown benefactor.
+
+But before long bold, insolent and unkind men entered the inn. They looted the supplies and began to quarrel among themselves because of their loot. First they merely argued, then they fought and began to take things one from the other by force, destroying much property with malice, merely in order to deprive others of its use. And when they got so far as to ruin everything in sight they began to freeze and starve, suffering hurt one from the other, and before long they blamed the master of the inn for his poor ar rangements, for failing to provide watchmen, or to store enough supplies, and for admitting bad people. But still others claimed that there never had been a landlord and that the inn had come about of itself.
+
+And these men departed from the inn hungry, cold and wrathful, and all they knew was to curse one another and the inn and him who had built it.
+
+Even as they who living for their body instead of liv ing for their soul, despoil their lives and the lives of others, and condemn one another instead of themselves, or God, if they acknowledge Him, or the world, if they do not ac knowledge God and suppose that the world came about of itself.
+
+### IX. Only the Fulfilment of the Law of Life Yields Blessing to Man
+
+#### 1
+
+It is necessary to be always rejoicing. If your joy ceases, seek wherein you have erred.
+
+#### 2
+
+If a man is dissatisfied with his state he can alter it in one of two ways: either by improving the circumstances of his life or by improving the state of his soul. The first is not always in his power, but the second always is.
+
+_Emerson_
+
+#### 3
+
+It seems to me that a man must make it his first rule to be happy and contented. He must be ashamed of his discontent as though of an evil action, and know that if something is wrong with him or in him, he should not tell others about it or complain, but rather correct that which is wrong.
+
+#### 4
+
+The fulfilment of the law of God, the law of love which yields supreme blessing, is possible in every condi tion of life.
+
+#### 5
+
+In this life we are all like horses that are being broken in and harnessed to a cart between shafts. First we struggle, longing to live to ourselves, we break the shafts and tear the harness, but we fail to escape and merely ex haust ourselves. And only after exhausting ourselves we forget our own will and submit to a higher will and start on our way, and then we find peace and happiness.
+
+#### 6
+
+The will of God will be fulfilled in any event, whether I will or will not obey it. But it is in my power either to oppose this will and to deprive myself of the blessedness of participating in it, or to be its instrument, to make it a part of myself as far as it can find room in me in the form of love, to live by it and to have the experience of unceasing blessedness.
+
+#### 7
+
+"Come unto Me all ye that labor and are heavy laden, and I will give you rest. For My yoke is easy and My burden is light," says the teaching of Christ. The meaning of these words is that however troubled a man may be, however beset with griefs and misfortunes, he only need realize and receive in his heart the true teaching that life and its blessedness consists in the union of the soul with that from which it is separated by the body: "with the souls of others and with God, and all the apparent ills will vanish at once. If a man but set the object of his life upon uniting in love with all that is living and with God, his life immediately is changed from agony into blessedness.
