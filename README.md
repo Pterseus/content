@@ -1,4 +1,4 @@
-# Welcome to the OMUSO Content Repository
+# OMUSO Content Repository
 
 The OMUSO Content Repository is dedicated to creating a comprehensive collection of classical texts, organized in a simple and accessible format using Markdown. This repository is a collaborative effort to gather, format, and maintain public domain books, making timeless literature available to all.
 
