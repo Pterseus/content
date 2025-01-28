@@ -6,8 +6,6 @@ translator: Archibald J. Wolfe
 date: 1919-01-01
 ---
 
-# The Pathway of Life
-
 ## Faith
 
 In order to live right, man must know what he ought to do, and what he ought not to do. In order to know this, he needs faith. Faith is the knowledge of what man is, and for what purpose he lives with the world. And such is the faith which has been and is held by all rational people.
@@ -71,6 +69,8 @@ When a man conies to know the true faith, he is like unto a man lighting a lamp 
 #### 1
 
 "Love one another, even as I have loved you, thus shall all men know that you are My disciples, if you have love one to another," said Christ. He did not say: "If you believe this or that," but "if you have love." Faith with different people, and in different times, may differ, but love is one and the same at all times and with all people.
+
+_John 13:34-35_
 
 #### 2
 
@@ -142,7 +142,9 @@ It must not be thought that because a faith is ancient, it is therefore true. On
 
 #### 3
 
-We are perturbed because we can no longer believe in that in which our fathers used to believe. We must not let this perturb us, but try instead to establish within us such a faith in which we can believe as firmly as our fathers believed in their faith. Martineau.
+We are perturbed because we can no longer believe in that in which our fathers used to believe. We must not let this perturb us, but try instead to establish within us such a faith in which we can believe as firmly as our fathers believed in their faith.
+
+_Martineau_
 
 #### 4
 
@@ -170,19 +172,37 @@ True faith is to believe in that ^ne law which befits all the people in the worl
 
 True faith enters the heart in stillness and solitude only.
 
-#### 3
+#### 4
 
 True faith consists in living always a good life, loving all men, doing unto others as you would have others do unto you.
 
-This, indeed, is the true faith. And this is the faith that all truly wi.^e men and men of saintly life have always taught among all nations.
+This, indeed, is the true faith. And this is the faith that all truly wise men and men of saintly life have always taught among all nations.
 
-#### 4
+---
+
+Настоящая вера не в том, чтобы знать, в какие дни есть постное, в какие ходить в храм и какие слушать и читать молитвы, а в том, чтобы всегда жить доброю жизнью в любви со всеми, всегда поступать с ближними, как хочешь, чтобы поступали с тобой.
+
+В этом истинная вера. И этой вере учили всегда все истинные мудрецы и святой жизни люди всех народов.
+
+---
+
+#### 5
 
 Jesus did not say to the Samaritans: Leave your beliefs for those of the Jews. He did not say to the Jews: Join the Samaritans. But he said to the Jews and to the Samaritans: You are alike in error. Not Garistm, nor yet Jerusalem avails anything. The time will come, nay, has already come, when men will worship the Fathar neither in Garisim nor yet in Jerusalem, but true worshippers will worship the Father in spirit and in the truth, for such are the worshippers whom the Father seeketh.
 
 Jesus was seeking such worshippers in the days of Jerusalem. He is seeking them still in these days.
 
-#### 5
+#### 6
+
+---
+
+Царство Божие придет к нам только тогда, когда церковная вера с чудесами, таинствами и обрядами заменится верой разумной, без чудес, таинств и обрядов. Время это приближается. Вера эта еще в зародыше. Но зародыш не может не разрастаться. Будем же ждать и работать для того, чтобы время это скорее пришло.
+
+_по Канту_
+
+---
+
+#### 7
 
 A master had a laborer. The same lived in his master's house and saw the master face to face many times each day. The laborer little by little neglected his labors, and finally grew so lazy that he would do nothing at all. The master noticed this but said nothing and merely turned his face from him whenever he met him. The laborer saw that his master was not satisfied with him, and planned to regain his master's favor without laboring. He sought out his master's friends and acquaintances and begged them to intercede with the master so that he should no longer be angry with him. The Master learned of this, and calling the laborer said: "Why do you ask people to intercede for you? You have me always with you and you can tell me face to face whatever is needful." But the laborer did not know what to say and departed. And he conceived a new plan: he gathered eggs belonging to his master, caught one of his master's fowls, and took them to him as a present to avert his wrath. And the master said: "First you ask my friends to plead for you, although you can freely speak to me for yourself. Then you mean to propitiate me with presents. But all that you have is mine already. Even if you brought me what is truly yours, I require no presents." Thereupon the laborer adopted a new scheme: he composed verses in his master's honor and standing outside his master's window loudly shouted and sang his verses, calling his master's great, r.mnipresent, all-powerful father, merciful benefactor.
 
@@ -194,11 +214,13 @@ Therein is the entire law of God.
 
 ### VII. The Idea of a Reward for a Good Life is Foreign to True Faith
 
+#### 1
+
 If a man adheres to a religion merely because he expects all sorts of external future rewards for the fulfilment of the works of his religion, this is not faith, but calculation, and in all cases an erroneous calculation. It is an erroneous calculation, because true faith yields its blessings only in the present, but does not, cannot give any external blessings in the future.
 
-A man set forth to hire himself out as a laborer. And he met two stewards seeking to hire laborers. He told them that he was seeking work. And the two began to invite him each to labor for his master. One said: "Come to my master, for his is a good place. Of course, if you do not please him, he will thrash you and place you in prison; but if you do please him, you cannot have a better life. When your labor is ended, you will live without toiling, enjoying an endless feast with wine, fine meats and entertainments. Only try to please the master, and your life will be too wonderful for description." Thus pleaded one of the stewards.
+#### 2
 
-The other steward also invited him to work for his master, but did not tell him how his master would reward him; he did not even mention where and how the laborer would live, whether the task was hard or light, but only stated that his master was good, inflicting no punishments, and that he lived together with his own hired laborers.
+A man set forth to hire himself out as a laborer. And he met two stewards seeking to hire laborers. He told them that he was seeking work. And the two began to invite him each to labor for his master. One said: "Come to my master, for his is a good place. Of course, if you do not please him, he will thrash you and place you in prison; but if you do please him, you cannot have a better life. When your labor is ended, you will live without toiling, enjoying an endless feast with wine, fine meats and entertainments. Only try to please the master, and your life will be too wonderful for description." Thus pleaded one of the stewards. The other steward also invited him to work for his master, but did not tell him how his master would reward him; he did not even mention where and how the laborer would live, whether the task was hard or light, but only stated that his master was good, inflicting no punishments, and that he lived together with his own hired laborers.
 
 And the man thought thus of the first master: "He promises a little too much. In fairness there is no need to promise so much. Tempted by the promise of a life of pleasure, I might find myself very poorly off. And the master, doubtless, is very stern, for he punishes severely those who fail to do as he says. I think I will rather go to the second master, for although he promises nothing, they say he is kind and lives in common with his laborers."
 
@@ -207,6 +229,14 @@ The same is true of religious teachings. Some teachers beguile men into good liv
 #### 3
 
 If you serve God for the sake of bliss everlasting, you do not serve God, but serve your own ends.
+
+---
+
+Если ты служишь Богу из-за вечного блаженства, то ты служишь себе, а не Богу.
+
+_Ангелус Силезиус_
+
+---
 
 #### 4
 
@@ -603,6 +633,8 @@ God is. We do not have to prove it. Proving that there is a God is a blasphemy; 
 _Mazzini_
 
 ### VI. Loving God
+
+#### 1
 
 "I do not understand what it means to love God. Is it possible to love something incomprehensible and unknown? To love your neighbor, that is intelligible and good, but to love God is a mere phrase." Many people speak and think in this manner. But people who speak and think thus, are gravely in error. They do not understand what it means to love their neighbor, not someone agreeable or useful to them, but all men equally, though they be the most disagreeable and hostile men. Only he can love his neighbor in this manner who loves God, that God who is the same in all men. Thus not the love of God is unintelligible, but the love of fellow-man without the love of God.
 

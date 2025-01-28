@@ -6,8 +6,6 @@ translator: Hugh G. Evelyn-White
 date: 1914-01-01
 ---
 
-# Homeric Hymns
-
 ## I. To Dionysus
 
 [...]

@@ -6,8 +6,6 @@ translator: Luis Segalá y Estalella
 date: 1910-01-01
 ---
 
-# La Odisea
-
 ## Canto I. Concilio de los dioses — Exhortación de Minerva á Telémaco
 
 Háblame, Musa, de aquel varón de multiforme ingenio que, después de destruir la sacra ciudad de Troya, anduvo peregrinando larguísimo tiempo, vió las poblaciones y conoció las costumbres de muchos hombres y padeció en su ánimo gran número de trabajos en su navegación por el ponto, en cuanto procuraba salvar su vida y la vuelta de sus compañeros á la patria. Mas ni aun así pudo librarlos, como deseaba, y todos perecieron por sus propias locuras. ¡Insensatos! Comiéronse las vacas del Sol, hijo de Hiperión; el cual no permitió que les llegara el día del regreso. ¡Oh diosa, hija de Júpiter!: cuéntanos aunque no sea más que una parte de tales cosas.

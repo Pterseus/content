@@ -6,8 +6,6 @@ translator: Conrad Roure i Bofill
 date: 1879-01-01
 ---
 
-# La Iliada
-
 ## Cant I
 
 Canta, deesa, la cólera d' Aquiles, fill de Peleo, cólera fatal que abocá un sens fí de mals demunt dels Grechs, precipitá al lloch de Pluton las ánimas, plenas de forsa, de nombrosos héroes y las feu presa de las aus feras y dels gossos. Aixís va cumplirse la voluntat de Júpiter desde 'l jorn que, per primera volta, una contenda desuní á Agamemnon, rey dels guerrers, y 'l diví Aquiles.

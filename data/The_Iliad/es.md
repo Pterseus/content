@@ -6,8 +6,6 @@ translator: Luis Segalá y Estalella
 date: 1908-01-01
 ---
 
-# La Ilíada
-
 ## Canto I. Peste — Cólera
 
 Canta, oh diosa, la cólera del Pelida Aquiles; cólera funesta que causó infinitos males á los aqueos y precipitó al Orco muchas almas valerosas de héroes, á quienes hizo presa de perros y pasto de aves—cumplíase la voluntad de Júpiter—desde que se separaron disputando el Atrida, rey de hombres, y el divino Aquiles.
