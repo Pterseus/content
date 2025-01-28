@@ -20,6 +20,6 @@ It is not necessary to define the `translator` field if it is the original work.
 
 ## Headings
 
-- Use Markdown headings (#, ##, etc.) to structure the text.
-- The title should be a level 1 heading (#).
+- Use Markdown headings (##, ###, etc.) to structure the text.
+- Do not include a level 1 heading (#) in the content.
 - Chapter titles should be level 2 headings (##).
